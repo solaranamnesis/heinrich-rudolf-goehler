@@ -105,4 +105,133 @@ Quanti vero Matris Magnae cultus aestimatus sit a Romanis, liquet ex iis quae le
 
 *) Ediderunt eas primus Mordtmaan in "Münchner sitzungsber. 1860 p. 180 sq." cum commentario, alter Domaszewski in "archäol. epigr. mitteilungen aus Östreich 8 1884 p. 95-101."
 
+Etsi vetitum erat cives Romanos sacerdotio Matris Magnae fungi (Dion. 2, 19), tamen iam a. u. c. 653 a. Chr. 101 civis Romanus gallus factus est.* Pessinuntem vero adierunt Romani, ut deae vota solverent (Val. M. 1, 1. Mommsen R. G. 6 2 p. 421), atque sacerdotium ipsum erat tam grave (Mommsen l. l. 2 p. 156), ut P. Clodius Pulcher Appii filius, cui Cicerone in exilium expulso pecunia opus erat ad res gerendas, illud, quoniam multum valuit in provinciis, Brogitaro Deiotari genero pecunia grandi venderet, ad quam rem Cicero in oratione pro Deiotaro habita alludit.* idem Clodius duobus annis post (u. c. 698 a. Chr. 56) quarto die m. Aprilis curulis aedilis ludos egit Matri Magnae.*
+
+*) Val. M. 7, 7, 6. cf. 1. Obsequ. 44 (ed. Iahn. p. 126) ad a. u. c. 652: servus Q. Servilii Caepionis Matri Idaeae se praecidit et trans mare exportatus, ne umquam Romae reverteretur.
+
+*) Cic. de har. resp. 13, 28. pro Sest. 26, 56. cf. epp. ad Qu. fr. 2, 7 9, 2.
+
+*) Prodigia commemorat Cass. Dio ad a. u. c 711 l. 46, 33 et ad a. u. c. 716 l. 48, 43.
+
+Sed nimirum in republica Romana erant, qui intellegerent cultum Matris Magnae ex more incolarum orientalium institutum populo nocere; atque extant fragmenta Varronis, quibus eum castigat cf. praeter fg. 28, 34, 36 (in sat. Menipp. rel. ed. Riese p. 131 sq.) fg. 35 (Buecheler Varr. Men. rel. 182):
+
+tibi typana non inani sonitu matri deum  
+tonimus chorus tibi nos, tibi nunc semiviri,  
+teretem comam volantem iactant tibi famuli,
+
+atque etiam Lucretio homini vere Romano minime placuerunt molles modi tibiae Phrygiae.* attamen quid valuerunt illi viri contra vulgus, quod acquiescebat in cultu animos incitante, quem ne carminibus celebrarent viri veluti Catullus non caverunt, qui eo processit ut elegiam in Attin componeret, qua dicentem facit Cybelen sic:
+
+agedum, inquit, age ferox i, fac ut hunc furor agitet,  
+fac uti fororis ictu reditum in nemora ferat,  
+mea libere nimis, qui fugere imperia cupit,
+
+*) Cf. Martial. 3, 81. 91. 7, 73. 8, 46. 9, 39.
+
+et postremum hoc a dea petit:
+
+procul a mea tuos sit furor omnis, era, domo:  
+alios age incitatos, alios age rabidos.
+
+tum vero eum (cf. 35, 12) secuti sunt omnes fere poetae aetatis Augusteae, Vergilius,* Ovidius,* Propertius,* Maecenas,* Horatius,* quorum temporibus cultus noster adolevit et paulatim una cum Isidis et Mithrae cultu omnes alios removit, praesertim cum novi instituerentur dies festi, quibus Mater Magna induceretur in cultum deorum agrestium (Macrob. sat. 1, 21, 7. Plin. h. n. 18, 16); adnotandum autem est illum ludum communiter a virorum et feminarum collegiis actum esse, quibus nomen erat cannophori, cannophorae. (cap. 3).
+
+*) Ae. 9, 108. 620. 584. 10, 220. G. 4, 64. Cir. 166.
+
+*) Ars. a. 1, 507. met. 10, 104. 686. 696. 704. fast. 4, 223 sq. 2, 55. 3, 259. 6, 319. Ib. 403. 505. ex P. 1, 1, 39.
+
+*) 3, 17, 35. 22, 3.
+
+*) Anthol. Pal. n. 82.
+
+*) Epp. 2, 1, 79. serm. 1, 2, 121.
+
+Sed antequam ad aetatem imperatoriam transeamus, disputandum est de titulo Cyziceno, quem Boeckhius C. I. G. 3668 et multo sanius Dittenberger in sylloge 270 sic restituit: [GREEK].* quibus verbis manifestum est Soteridem gallum, cum Buleides hipparcha erat, votum pro M. Stlaccii, qui a. 46 a. Chr. in Libyam profectus ibidem in servitutem redactus est, salute susceptum solvisse, postquam ei feliciter contigit, ut amicum liberaret.
+
+*) Boeckhii mutationem [GREEK] nimis audacter factam summo iure Dittenb. refutavit.
+
+Iam vero sequitur aetas imperatoria, qua praeter scriptorum testimonia multae extant inscriptiones, quibus intellegimus cultum celeriter ad summum pervenisse fastigium.
+
+Augustum autem, cuius uxor Livia ad Cybeles formam fingebatur,* cultui consuluisse docet monumentum Ancyranum (Mommsen. res g. d. Aug. 2 p. 82. 157), quo cognoscimus ab eo refectam aedem Matris Magnae Palatinae, quam a. u. c. 756 p. Chr. incendio deletam esse Val. Maximus 1, 8, 11 (cf. Cass. D. 55, 12. Suet. Aug. 37) narrat. cuius imperatoris aetati tribuendi sunt tituli: _C. I. L. 6, 496_ ONESIMVS • OLYMPIAS | LIVIA • BRISEIS • AVG • LIB • SAC | M • D • M • I, quem sic legendum esse censeo: Onesimus, Olympias, Livia, Briseis, Augusti liberti, sacerdotes Matris deum Magnae Idaeae et _I. R. N. 6865_ (Orelli 2984), quem posuit Cosmus aedituus Matris deum Antiocho ab imperatore Augusto gratis manumissus. ex quibus apparet sacerdotio et ministerio Augusti temporibus peregrinos et libertos fungi solere. fortasse in eandem aetatem cadit titulus feminae Atticae Mnasidi positus _C. I. A. 3, 888_, quippe cum forma [GREEK] (cf. C. I. A. 3, 550. 552. 575 sq.) imprimis Augusti aetate usitata et litterae [GREEK] ab ea alienae non fuerint (Franz. elem. epigr. gr. 1840 p. 244 sq.).
+
+*) Müller-Wieseler l. l. 1 tab. 69 n. 379.
+
+Deinde Tiberio, Claudio,* Caligula, Nerone (Cass. Dio 61, 20) imperatoribus nihil fere nobis de cultu traditur, quod ex parte inde explicari potest, quod Tiberius Paulina violata* et ob alias causas Aegyptios Iudaicosque ritus compescuit, mathematicos magosque ex Italia expulit (Sueton. Tib. 36. Tac. ann. 2, 32. 85). quamquam unam inscriptionem _C. I. L. 6, 2260_, quam fecit Claudia Acropolis Aug. lib. sacerdos Matris deum sibi et perenni coniugi suo Cladiano, libertis, libertabus posterisque, hisce temporibus insculptam esse concludam ex nomine Claudiae, quod accepisse videtur a gente Claudiorum imperatoria. postquam autem stirps Iulia periit, cultus denuo gliscit auctoritate atque Vespasianus templum Matris deum terrae motu* Herculanei conlapsum a. 76 p. Chr. restituit _C. I. L. 10, 1406_.
+
+*) Imhoof-Blumer monnaies grecques: Lydie 172.
+
+*) Ioseph. antiqu. 18, 13, 5. Zonaras ed. Dind. p. 268. 269. Hegesipp. 2, 4. nullam autem iustam video causam, cur Lafaye "l'histoire du culte des divinités d'Alexandrie Isis etc. 1884 p. 54 sq." de hac fabula dubitet.
+
+*) Fortasse cogitandum est de terrae motu a. 62 p. Chr. cf. Tac. ann. 15, 22: motu terrae celebre Campaniae oppidum Pompeii magna ex parte proruit; cf. etiam titulum Pompeianum C. I. L. 10, 846.
+
+Domitiano fortasse imperatore tit. _C. I. L. 9, 1153_ positus est a Cantria P. filia Longina, sacerdote flamina (vel flaminica) divae Iuliae Piae Augustae (Suet Dom. 22. Plin. epp. 4, 11) et Matris deum et Isidis Reginae.
+
+Paulo vero post cultus Matris Magnae etiam in provincias invasit atque ex Gallia in Hispaniam pervenisse videtur, qua in provincia repertus est titulus _C. I. L. 2, 179_, quo legitur: Matri deum Mag(nae) Idaeae Phryg(iae) Fl(avia) Tyche cernophor(a) per M. Iul(ium) Cass(ianum) et Cass(iam) Sev(eram) M. At(ilio) et Ann(io) Gal(lo) coss. (108 p. Chr.).
+
+Ad Traiani vel Hadriani aetatem propter vocem Ulpiae spectat tit. _C. I. G. 3508_ Thyatirae rep., quem praecedit hic (3507): [GREEK] sequitur alter: [GREEK]. constat igitur U. Marcellam Thyatirae natam esse, patrem eius fuisse [GREEK],* matrem, quod ex nomine apparet, civem Romanam. cum vero admodum adulescens parentibus orbata esset, Andronicus eam educavit; tum Dianae sacerdos facta summo cum splendore munere functa est, ut senatus populusque statuam ei decernerent. non multo post asiarcha,* ter agonothetis patriae, a Smyniaeis perpetua Matris Magnae sacerdos creata est; quapropter altero titulo Thyatirae cives ei Smyrnae quoque statuam posuisse videntur. Patinus autem, quem secuti sunt Boeckhius et Lebas-Waddington l. l. 3, 5, magna cum probabilitate coniecit U. Marcellam sacerdotio Dianae deposito viro nupsisse atque peperisse Ulpiam Marcellam, quae commemoratur in tit. C. I. G. 3157.
+
+*) [GREEK]; idem est atque [GREEK] cf. Plut. comp. int. Cim. et Luc. 2. C. I. G. 3, 5804. Augustin. princip. rhet. 9: tametsi quidam parum diligenter Graece loquentes paradoxa pro his, quae sunt bonae opinionis, accipiunt: unde vulgo etiam Olympionicas et ceteros victores sacrorum certaminum paradoxos vocant magis consuetudine quam ratione ducti.
+
+*) E. Kuhn: die städt. u. bürgerl. verfassung d. röm. reichs bis auf die zeiten Justinians. Lpzg. 1864. 1. p. 106 sq.
+
+Certe profecto Traiano imperatore ortus est tit. _C. I. L. 3_, 1100 Apulensis, quem pro salute Augusti Matri deum Magnae sanctum T. Fl. Longinus veteranus ex decurione alae 2 Pannoniorum, decurio coloniae Dacicae, decurio municipii Napocae, decurio Kanabensium legionis 13 geminae et Claudia Candida coniunx et Flavius Longinus, Clementina Marcellina filii ex imperio pecunia sua fecerunt. cum enim nomen Sarmizegetusae absit ab hoc titulo et ab aliis eiusdem voluminis (1323. 1443. 1572 cf. C. I. L. 3 p. 228), quorum antiquissimus est 1443 ob coloniam Dacicam a. 110 p. Chr. conditam positus, atque cum postea locus appelletur colonia Ulpia Traiana Augusta Dacica Sarmizegetusa, haud dubie concludi potest titulos in quibus deest nomen Sarmiz. paulo post a. 110 p. Chr. erectos esse.
+
+Inde ab excessu Hadriani usque ad tempora Diocletiani de cultu edocti sumus permultis titulis praesertim tauroboliacis, quorum aetas certo argumento definiri potest. priusquam autem inscriptiones explanandae sunt, opus est commemorare iam medio fere secundo saeculo patres ecclesiasticos ut in ceteros paganorum cultus, ita etiam in Matrem Magnam vehementer invectos esse; atque Octavius Minucii Felicis apologia Christiana antiquissima quae nobis tradita est abundat verbis acerrimis (cf. capp. 2, 4. 21, 1. 22, 1. 27, 6. 28, 7 ed. Vind.); afferam hoc loco illa verba quae leguntur c. 25, 9 sq.: "sane et Acca Larentia et Flora, meretrices perpudiosae, inter morbos Romanorum et deos comprobandae. isti scilicet adversus ceteros, qui in gentibus colebantur, Romanorum imperium protulerunt: neque enim eos adversus suos homines vel Mars Thracicus vel Iuppiter Creticus vel Iuno nunc Argiva, nunc Samia, nunc Poena, vel Diana Taurica vel Mater Idaea vel Aegyptia illa non numina sed portenta fuerunt," et paulo post: "ubi autem magis a sacerdotibus quam inter aras et delubra conducuntur stupra, tractantur lenocinia, adulteria meditantur?* frequentius denique in aedituorum cellulis, quam in ipsis lupanaribus flagrans libido defungitur." quem secutus est initio 3 saeculi Tertullianus, qui summa cum gravitate et eloquentia puram fidem Christianam illis numinibus paganorum libidinosis opponit.*
+
+*) Ioseph. antiqu. 18, 13, 5. Cosmas Hierosolymitanus ad S. Gregorii theol. v. 267 (Migne patrol. gr. 28 p. 502).
+
+*) Adv. nat. 1, 10. ad extr. 2, 8. apol. 13 sq. de corona 7. adv. Marc. 1, 13.
+
+Ac primo quidem titulo, qui nobis occurrit, _Ann. Inst. 40 (1868) p. 367_ dendrophori Ostienses, quos Matris Magnae cultum curasse ceteris titulis (p. 379. 399) satis ostenditur, imperatori Caesari T. Aelio Hadriano Antonio Aug. Pio,* pontif. max., trib. pot. 2, cos. 2, patri patriae posuerunt a. 139, quo hic iterum consul fuit. sequens titulus inest in eisdem annalibus _40 p. 373_, quo Sex. Annius Merops Honoratus dendrophoris eiusdem oppidi signum terrae Matris dedicat 13 Kal. Mai. L. Cuspio Rufino T. Statio Quadrato consulibus (19 d. m. Apr. a. 142); isdem dendrophoris anno post Idib. Mai. Torquato et Herode consulibus (15 d. m. Maii a. 143) dono dedit signum Martis T. Annius Lucullus 6 vir Augustalis et quinquennalis honoratus: _Ann. Inst. 40 p. 374._ denique ad eosdem dendrophoros spectat tit. _Ann. Inst. 40 p. 368_ valde mutilatus C. Prastina Pacato Messallino L. Annio Largo consulibus erectus (a. 147).
+
+*) De nummis Antonini Pii et Faustinae uxoris, in quibus Mater Magna visitur cf. Eckhel. 7 p. 39 sq. Cohen. 2 2, p. 417. 431. 434. 439. 382. 399. Friedlaender-Sallet das kgl. münzkabinet 2 Berl. 1877 n. 1062. de nummis M. Aurelii Antonini cf. Mionnet. l. l. 4 p. 116 sq., de n. Faustinae minoris Cohen. 2 3 p. 150. 164 sq.
+
+Primum autem taurobolium ex imperio Matris deum pro salute Antonini Augusti Pii liberorumque eius et status coloniae Lugdunensis a L. Aemilio Carpo seviro Augustali et dendrophoro Appio Annio Atilio Bradua et T. Clodio Vibio Varo consulibus (a. 160) factum est. accuratissime titulum edidit vir doctus Francogallicus Boissieu _I. d. L. p. 24_; quoniam vero in parte 4 de tauroboliis disputandum mihi proposui, illo loco diligentius hunc titulum gravissimum pertractabo.
+
+Deinde certe ante a. 169 tit. _Ann. Inst. 40 p. 368_ exaratus est, quo Aur. Vero Augusto, qui a. 161 post mortem Antonini Pii a fratre suo M. Aurelio Antonino Augustus electus a. 169 vita excessit Fabius Q. f. Honoratus ob honorem immunitatis dendrophoris Ostiensibus donum dedit.
+
+Titulo insequenti, qui extat in _C. I. L. 6, 3702_, Matri Idaeae T. Asuellio Marciano curatore aedium sacrarum et operum locorumque publicorum dedicatur 6 Kal. April. Pertinace et Iuliano consulibus (d. 27 m. Martii a. 175). in idem fere tempus incidit tit. _C. I. L. 10, 4635_, quem Vitrasia Faustina, Pollionis consulis filia, quam a. 183 p. Chr. interfectam esse scimus (Ael. Lamprid. v. Comm. 4) ab imperatore Commodo, Matri Magnae sua pecunia fecit. cum vero Pollio a. 176 iterum consul factus sit, hoc autem titulo consul tantum nominetur, is ante a. 176 positus est. quo anno 15 Kal. Nov. (d. 18. m. Oct) complura taurobolia Lactorae percepta sunt a viris feminisque cf. _Gruter, p. 30, 4. 31, 3_. Porro afferam tit. Lugdunensem (_Boissieu I. d. 50. p. 28_) propter taurobolium L. Eggio Marullo et Cn. Papirio consulibus (a. 184) a Q. Aquio Anoniano pontifice perpetuo positum et tit. _C. I. L. 10, 4726_ Carinolae repertum, quo cognoscimus 12 Kal. Dec. Glabrione iterum consule (d. 20 m. Nov. a. 186) Munatiam Redditam sacerdotem quindecimviralem (cf. p. 3) taurobolium fecisse.
+
+Tum vero anno 187 edocemur Hilariis* Maternum quendam constituisse Commodum e medio tollere, consilio autem imperatori delato ipsum capitis damnatum esse, Commodum deae sacra obtulisse; atque verisimillimum est nummos quos habemus ex a. 191 Matri deum conservatrici Augustae (Cohen l. l. 2 3 p. 274) ob eandem causam excusos esse.*
+
+*) Herodian. ab exc. divi Marci 1, 1, 5: [GREEK]. cf. p. 3.
+
+*) Nummi Pertinacis, in quibus Cybele conspicitur, compositi sunt ap. Cohen 2 3, 392.
+
+Septimii Severi temporibus tribuendi sunt hi tituli: _Boissieu I. d. L. p. 31_, quo numinibus Augusti totiusque domus divinae et situ coloniae Copiae Claudiae Augustae Lugdunensis dendrophori ibi consistentes 15 Kal. Iulias Marco Sura Septimiano* consule (d. 17 m. Iun. a. 190) taurobolium fecerunt et ibidem (_Boissieu l. l. p. 33_) feminae duae Aul. Fustia Alexandria et Sergia Parthenope pro salute imperatoris L. Septimii Severi Pertinacis Augusti et, quoniam recte Boissieu verba erasa restituit, Decimi Clodii Septimii Albini Caesaris domusque divinae et statu col. Cop. Claud. Aug. Lugdunensis imp. L. Septimio Severo 2 consule (a. 194).
+
+*) Nomen imperatoris Commodi erasum est cf. Wilmanns ex. 120.
+
+_Ann. Inst. 40 p. 379_ tit. eodem anno positus, quo M. Antius Crescens Calpurnianus V. C,* pontifex Vulcani et aedium sacrarum (cf. Marquardt. l. l. 3 p. 229) basim ? impositamque statuam sine vexatione ullius statuae in campo Matris deum praescripto constituere concessit aeque ac statuam poni permisit infantilem in eodem campo 8 Kal. April. C. Fulvio Plautiano 2 P. Septimio Geta 2 consulibus (d. 25 m. Martii a. 203): _Ann. Inst. 40 p. 378._ anno ante patronus corporis dendrophororum Ostiensium, cuius noraen iam non legitur, ex argento pondo 3 dedit 8 Kal. Mai. Domitio Dextro 2 et Thrasea Prisco consulibus (d. 24 m. April. a. 196): _Ann. Inst. 40 p. 374._
+
+*) Vir clarissimus.
+
+Tit. Lugdunensis _Boissieu I. d. L. p. 36_, quo pro salute imperatoris Septimii Severi et M. Aurelii Antonini Caesaris imperatoris destinati et Iul. Augustae matris castrorum (I. Capitolin. M. Aur. 26) totiusque domus divinae et statu coloniae Septicia Valeriana et Optatia Spora taurobolium fecerunt T. Sextio Laterano et L. Cuspio Rufino consulibus (a. 197).
+
+Tit. in _Orelliana sylloge 2326_ extans, quo Aemilia Serapias taurobolium percepit et petram tauroboliatam posuit Idib. Maiis Annullino 2 et Frontone consulibus (d. 15 m. Maii a. 199). eodem anno vel paulo post taurobolium fecit provincia Narbonensis pro salute L. Septimii Severi Pii Pertinacis Aug. Arab. Adiabenici Parthici Maximi, quod cognomen a. 199 accepit, et M. Aurelii Antonini Aug..., quem titulum edidit Herzog in libro suo "Gallia Narbonensis" inscripto _n. 7._
+
+Tit. _C. I. L. 8, 2230_ in Africa rep., quem Matri deum sacrum pro salute imperatorum L. Septimii Severi et M. Aurelii Augusti et P. Septimii Getae Caesaris, cuius nomen postea crasum est, et Iuliae Augustae totiusque domus divinae C. Statius Ianuarius sacerdos posuit. quoniam vero M. Aurelius* a. 198 Augustus et Geta eodem anno Caesar factus est, tit. inter a. 198-211 erectus esse debet.
+
+*) De nummis eius, qui Cybeles imaginem praebent, cf. Mionnet. 5 p. 140. Cohen 3 3 p. 122.
+
+Deinde imperatorum Septimii Severi eiusque filii M. Aurelii Antonini aetate orti sunt tituli cannophororum Ostiensium (cf. p. 3.), quorum tertius _Ann. Inst. 40 p. 390 sq. n. 3_ ad certum spectat annum nominibus consulum Asprorum (a. 212) additis.
+
+Denique restat ut dicam de tit. (C. I. G. 189) _C. I. A. 3, 1062_, quo consensu senatus quingentorum prytanes [GREEK] Euphrosyno prostatae ob merita eius statuam decreverunt, cum Aurelius Dionysius [GREEK] erat. quaeritur autem, quis fuerit Agapetus. ac Boeckhius quidem censet Antoninum Pium intellegendum esse; attamen Dittenberger l. l. recte contradicit Minervae Poliadis nomen inter prytanes, quorum nomina titulo subscripta sunt, titulis C. I. A. 3, 1054-56 exceptis, qui pertinent ad initium saeculi tertii, nusquam praeterea reperiri; quo accedere, quod pagorum designatio desit. itaque existimo Agapetum esse Septimium Severum.
+
+Heliogabalus autem maxime Matrem Magnam simul cum ceteris dis orientalibus* coluit. narrat enim Ael. Lampridius in vita eius c. 7 non modo Matris deum sacra eum accepisse atque tauroboliatum esse, sed eo insaniae processisse (c. 28), ut leones sibi iungens Matrem Magnam se appellaret; atque apud Aur. Victorem ep. 23 legimus haec: vestalem virginem quasi matrimonio iungens suo abscissisque genitalibus Matri se Magnae sacravit. nihilominus nullus extat titulus, qui aetati eius tribui potest.
+
+*) Ael. Spart. Ant. Car. 9. Cass. Dio 77, 15. 23. 78, 7. 79, 4. Ael. Lampr. Alex. Sev. 26.
+
+Annis Severi Alexandri* (222-235) imperatoris pro salute eius et Iuliae Mamaeae Augustae, cuius nomen haud dubie restituendum est, et domus eorum divinae Basilicus et Mnesius criobolium fecerunt et ipsi susceperunt:* _tit. C. I. L. 8, 8203_ in Africa repertus. alterum titulum _C. I. L. 9, 1538_ Beneventinum, quo non multo recentiores sunt tit. _C. I. L. 9, 1539-1542_ Attini et Minervae Berecyntiae sacri atque in aris tauroboliacis insculpti, 5 Id. April. Modesto 2 et Probo consulibus (d. 9 m. Aprilis a. 225) ob criobolium factum Concordia Col. lib. Ianuaria cymbalistria loco secundo posuit.
+
+*) De nummis v. Mionnet. l. l. 4 p. 5.
+
+*) Cf. partem 4 p. 57.
+
+Sequuntur tit. _C. I. L. 9, 3014_ Teatinus, quo taurobolium de suo fecit Petronius Marcellus pro salute imporatorum Maximini Augusti et Maximi Caesaris, qui inter a. 235-238 summam imperii tenuerunt; tit. _Eph. E._ 3, 15 Cordubae rep., in ara marmorea ex iussu Matris deum pro salute imperii ob taurobolium factum a Publicio Valerio Fortunato Thalamo Pio et Proculo consulibus (a. 238) erectus; videmus igitur hoc tempore et in Africa (cf. supra) et in Hispania (cf. etiam C. I. L. 2, 606, quo Huebneri sententia mihi probatur) taurobolia esse percepta; tit. _C. I. L. 10, 6075_ Formianus, quem Helvia Stephanis sacerdos Matris Magnae imperatore Gordiano 2 Augusto et Pompeio consulibus (a. 241) taurobolio perfecto posuit quo anno etiam exarati sunt complures tituli tauroboliaci Lactorates, quorum imus extat apud Wilmanns. exempla 124, alter ap. Orellium l. l. 2331, omnes apud Gruterum p. 29, 13. 14. 30, 1. 5.
+
+Tum vero nobis dicendum erit de titulo _C. I. G. 3886 add._, quo legendum est:
+
+[GREEK].
+
+Cavedonius autem (Ann. Inst. 19, 136) demonstravit [GREEK] et [GREEK] referenda esse ad Otacillam et Philippum, qui inter annos 243 et 249 praeerat imperio Romano. etenim quod Letronnius [GREEK] legi vult atque refert haec verba ad Iuliam Domnam aut Iuliam Mamaeam, quia illis ambabus cognomina Felix Pia tribuuntur, huic sententiae obstat quod Felix sermone Graeco non redditur _v._ [GREEK], sed semper _v._ [GREEK].
+
 ...
