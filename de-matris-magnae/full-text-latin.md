@@ -234,4 +234,88 @@ Tum vero nobis dicendum erit de titulo _C. I. G. 3886 add._, quo legendum est:
 
 Cavedonius autem (Ann. Inst. 19, 136) demonstravit [GREEK] et [GREEK] referenda esse ad Otacillam et Philippum, qui inter annos 243 et 249 praeerat imperio Romano. etenim quod Letronnius [GREEK] legi vult atque refert haec verba ad Iuliam Domnam aut Iuliam Mamaeam, quia illis ambabus cognomina Felix Pia tribuuntur, huic sententiae obstat quod Felix sermone Graeco non redditur _v._ [GREEK], sed semper _v._ [GREEK].
 
+Nunc audiamus Cyprianum,* qui ab a. 200 usque ad a. 257 floruit, episcopum Carthaginiensem, qua in regione Matrem Magnam cultam esse compluribus inscriptionibus confirmatur (cf. C. I. L. 8, 1649. 1776. 2230. 2633. 4846 etc. Eph. E. 5, 614), in carmine ad senatorem ex christiana religione ad idolorum servitutem conversum sic loquentem:
+
+quis patiatur enim te matrem credere magnam  posse deam dici rursusque putare colendam,  cuius cultores infamia turpis inurit?  namque sacerdotes tunicis muliebribus idem  interius vitium cultu exteriore fatentur,  idque licere putant quod non licet: unde per urbem  leniter incedunt mollita voce loquentes,  lassatosque tenent extenso pollice lumbos  et proprium mutant vulgato crimine sexum.  cumque suos celebrant ritus, his esse diebus  se castos memorant: at si tantummodo tunc sunt  ut perhibent casti, reliquo iam tempore quid sunt?  sed quia coguntur saltim semel esse pudici,  mente fremunt, lacerant corpus funduntque cruorem.  quale sacrum est vero quod fertur nomine sanguis?*  nunc etiam didici, quod te non fecerit aetas,  sed tua religio calvum caligaque remota  Gallica sit pedibus molli redimita papyro.
+
+*) Cf. p. 50.
+
+Philippi temporibus Deae Vocontiorum ara tauroboliaca prid. Kal. Octobres Philippo Augusto et Titio consulibus (d. 30 m. Sept. a. 245) erecta est cf. _Wilmanns ex. 123._ gravior autem est tit. _C. I. L. 6, 488_ praesentiae Matris deum a P. Septimio Felice ob coronam millesimi urbis anni (a. 247) positus. deinde quattuor annis post ortus est tit. _C. I. L. 10, 3699_ Cumanus, quo dendrophororum ex senatus consulto creatorum nomina subsignata sunt; Borghesius enim (opp. 3, 137. 7, 44) exposuit verba 7 Id. Oct. 3 et semel consulibus in fine tituli nominibus omissis tantummodo spectare ad a. 251 (cf. Klein. fast. consul. p. 106). cui proximus est tit. _Ann. Inst. 40 p. 399_, quem quantum fieri potuit probabiliter Visconti sic supplevit:
+
+taurob [olium crioboliumque factum]/Magnae d[eum Matri et Attini pro salute]/imp. Caesaris C. V[ibi Treboniani Galli Pii]/Fel. Aug. et[imp. Caesaris C. Vibi Asinii Galli]/Veldum[niani Volusiani Pii Fel.]/Aug. tot[iusque domus divinae et]/Senati [pro statu coloniae Ostiensis]/ex [imperio Matris deum a dendrophoris Ostiensibus]/S[acerdote?...].
+
+*) Cf. vol. 3, 1, 21, 4 sq., quo loco verbis Minucii Felicis supra adnotatis utitur; 3, 2, 209, 14 ed. Vindob. etsi carmen h. l. c. Hartelio spurium esse videtur, tamen haud dubie hac aetate compositum est.
+
+Gallus autem et Volusianus imperatores erant ab a. 251 usque ad a. 254.
+
+Iam vero transeamus ad Diocletianum, cuius aetati hi tituli assignandi sunt:
+
+_C. I. L. 10, 3698_* Cumanus, quo edocemur consensu omnium in locum Restituti mortui Licinium Secundum, sacerdotem Matris deae Baianae creatum esse M. Magrio Basso et L. Ragonio Quintiano consulibus Kal. Iun. (d. 1 m. Iunii a. 289).
+
+_C. I. L. 6, 505_ notissimus, quem L. Cornelius Scipio V. C. augur, cuius nomen redit in tit. tauroboliaco eiusdem voluminis 506, erexit taurobolio sive criobolio 3 Kal. Mart. Tusco et Annullino consulibus (d. 26 m. Febr. a. 295) perfecto.
+
+Attamen priusquam pergam de titulis disputare, Arnobii libros 7 adversus nationes conscriptos afferam, quorum quinto Timotheum theologum secutus non modo originera nostri cultus explicare studet, sed etiam castigat impudicitiam foeditatemque, quae insunt in eo; atque summo cum taedio exclamat: o fabulam sexui inimicam semper atque infestissimam masculino, in qua secus virile non solum homines ponunt, sed pecudes etiam fiunt ex maribus matres.
+
+Restant igitur tituli qui spectant ad quartum p. Chr. saeculum. ac primus quidem titulus _C. I. L. 6, 497_ Matri Magnae a Iulio Italico V. C. quindecimviro sacris faciundis taurobolio feliciter percepto Constantio et Maximiano Caesaribus 5 consulibus 18 Kal. Maias (d. 14 m. April. a. 305) positus est. nono post anno Constantino et Maximiano 3 consulibus 17 Kal. Maias (d. 15 m. April. a. 313) taurobolium fecit C. Magius Donatus Severianus V. C., pater sacrorum invicti Mithrae, hierophantes Liberi patris et Hecatarum: _C. I. L. 6, 507_. maioris est momenti tit. _C. I. L. 6, 508_,* quo potentissimis dis Matri Magnae et Attidi Menotyranno (cf. p. 31) sacro Serapias honesta femina sacrata (quam lectionem praefero alteri "sacerdos" cf. C. I. L. 6, 1780) deum Matris et Proserpinae Constantino 5 et Licinio consulibus 13 Kal. Maias (d. 19 m. April. a. 319) taurobolium crioboliumque caerno Cerealibus percepit.
+
+*) Cf. p. 47. tit. C. I. L. 8, 8457 Sitifensem non enumeravi in contextu, quia nobis valde mutilatus est traditus; erectus est anno prorinciae 249 i. e. a. 288 p. Chr. cf. Marqu. l. l. 1 p. 324.
+
+Quos titulos si accuratius inspexerimus, intellegemus plerosque positos esse a viris reipublicae Romanae illis temporibus clarissimis; itaque factum est, ut taurobolia crioboliaque his ipsis temporibus maxime florerent, praesertim cum imperatores subsecuti aut non resisterent iis, aut ea sacra probarent. etenim quamquam religioni Christianae Constantinus addictus erat, tamen Zosimus 2, 31 recte dicit eum nihil fecisse res divinas atque, etsi viri theologi nostrae aetatis hanc sententiam refutare conati sunt, equidem plane consentio cum Burckhardtio , qui de illo imperatore haec verba fecit (die zeit Constantins des grossen 2 p. 345): in einem genialen menschen, dem der ehrgeiz und die herrschsucht keine ruhige stunde gönnen, kann von Christentum und Heidentum, von bewusster religiosität und irreligiosität gar nicht die rede sein; ein solcher ist ganz wesentlich irreligiös, selbst wenn er sich einbilden sollte mitten in einer kirchlichen gemeinschaft zu stehn. Zosimus autem memoriae tradidit ab illo in extrema parte unius ex porticibus, quibus forum Byzantii inclusum erat, duas aedes exstructas esse collocato in altera simulacro Matris deum, quod Iasonis socii olim in monte Dindymo constituerant, idque ab eo mutatum esse, cum leones utrimque tolleret manuumque formam converteret: [GREEK]. nec multo post Zosimum paganitatis defensorem 1. Firmicus Maternus libellum "de errore profanarum religionum" composuit, quem Constantini filiis dicavit, quos admonuit ut tantae calamitatis errorem abicerent et studia mentis profanae tandem aliquando desererent. quomodo autem ille, qui c. 3 cultum Attidis explanare instituit, cultus orientales ortos esse censeat, apparet ex eo quod c. 13, 2 Serapin coniungit cum fabula illa Iosephi, cui, quia Sarrae pronepos fuerit, post mortem eius nomen [GREEK] inditum sit, et c. 3 hariolatur "Phryges, ut annuum sibi sacrorum ordinem facerent, mulieris divitis ac reginae suae amorem, quae fastus amati adulescentis tyrannice voluisset ulcisci, cum luctibus annuis consecrasse et iactavisse, aut ut satis iratae mulieri facerent aut ut paenitenti solacium quaererent, eum quem paulo ante sepelierant revixisse, et cum mulieris animus ex impatientia nimii amoris arderet, mortuo adulescenti templa fecisse." hoc quidem impetravit, ut a. 341 Constantius ediceret, ut sacrificiorum aboleretur insania (cod. Theodos. 16, 10, 2), atque a. 346, ut cuncti sacrificiis abstinerent et siquis aliquid forte huiusmodi perpetravisset gladio ultore sterneretur (cod. Theodos. 16, 10, 4). attamen cultus denuo renatus est Iuliano imperatore (a. 361-363), qui ut Matris deum, quam oratione quinta laudibus extulit,* sacra florerent summam operam navavit ita ut Callixenum bene de sacerdotiis meritum duplici et Demetris et Matris Magnae Pessinuntiae sacerdotio honoraret atque Arsacio Galatiae summo sacerdoti imperaret, ut Pessinuntis incolas ad Matrem Magnam colendam impelleret; dicit enim (ep. 49):
+
+[GREEK].
+
+*) Cf. cap. 4. de Cerealibus vide Friedlaender. ap. Marquardt. l. l. 3 p. 479.
+
+1) Cf. p. 232 ed. Hertlein: [GREEK]. Amm. Marc. 22. 9, 5-8. Libanius in orat. consulari p. 247 et in monodia de Iuliani obitu p. 254.
+
+Quo mortuo praecipue Theodosius* (a. 379-395) religiones paganas funditus evertere conatus est; quamquam ipsius temporibus viri praeclarissimi Symmachus* (cos. a. 391), Vettius Agorius Praetextatus* († cos. designatus a. 385), Virius Nicomachus Flavianus* (cos. a. 394) cultui pagano dediti erant. in quos invehitur anonymus auctor carminis codicis Parisini n. 8084, quod a Mommseno in Hermae vol. 4 publici iuris optime factum hac aetate compositum est.
+
+*) Cod. Theod. 16, 7, 1. 10, 7. 10. 11. 12. Symm. epp. 10, 61. Liban. [GREEK]. Socrat. hist. eccl. 5, 16. Zosim. 4, 33. 37. 59.
+
+*) Laudat. in Valentinianum 2 (monum. Germ. h. auctt. antiquiss. 6, 1 ed. O. Seeck.): quanto parcior vestri numinis cultus est quam deorum! illis singula templa fundantur et sua cuique locantur altaria. inde ut arbitror maluerunt dispares ritus, ne in consortium cogerentur: nulli cum altero fas est dicaro pulvinar; hunc phrygius antistes placat, hunc pontifex; illas castae matres tuentur aras, has infulata virgo custodit; sumpserunt nomina diversa tot flamines, no possent dis pluribus esso communes. ipsas nobilium divisere gentes: Pinarios Hercules occupavit, Idaea Mater legit hospites Scipiones, Veneriis sacris famulata est domus Iulia.
+
+*) cf. p. 59.
+
+*) C. I. L. 6, 1782. Teuffel, gesch. d. röm. litt. 4 p. 1007. § 428 adn. 1-4.
+
+Denique de titulis ad haec tempora pertinentibus dicam: _Tit. C. I. L. 6, 1675_, quem Alfenius Ceionius Iulianus Kamenius V. C. tauroboliatus ante a. 333 posuit, cum hoc anno munere praefecturae urbis fungeretur, quod in titulo non commemoratur. cui proximus est tit. _C. I. L. 6, 498_ in ara tauroboliaca extans, quam Antoninus V. C. pontifex et quindecimvir sacris faciundis taurobolio confecto 3 Kal. Maias Fl. Anicio et Nigriniano consulibus (d. 29 m. April. a. 350) feliciter consecravit. similem aram dicavit in tit. bilingui _C. I. L. 6, 509_ Petronius Apollodorus V. C. pontifex maior, quindecimvir sacris faciundis, pater sacrorum dei invicti Mithrae taurobolio criobolioque percepto una cum Rufa Volusiana C. filia (vel potius clarissima femina?) coniuge 16 Kal. Iul. Valentiniano et Valente Augustis 3 consulibus (d. 16 m. Iunii a. 370); probabile autem est Rufam Volusianam fuisse filiam C. Rufi Volusiani V. C. patris, hierophantae, prophetae Isidis, pontificis dei Solis, qui votum solvit ara marmorea, cuius inscriptio legitur _C. I. L. 6, 846_.
+
+Matri autem deum Magnae Idaeae summae parenti et Hermae et Attidi Menotyranno invicto Clodius Hermogenianus Caesarius V. C., qui idem esse videtur atque ille comes rerum privatarum in cod. Theod. 10, 1, 8 a. 364 commemoratus, proconsul Africae, praefectus urbis Romae, quindecimvir sacris faciundis taurobolio criobolioque perfecto 14 Kal. Aug. Gratiano Aug. 3 et Aequitio consulibus (d. 19 m. Iulii a. 374) aram dicavit: _C. I. L. 6, 499_.
+
+Porro cadunt in annum 376:
+
+_Tit. C. I. L. 6, 504 et 510_, quorum unum Ulpius Egnatius Faventinus V. C. taurobolio criobolioque Id. Aug. (d. 13 m. Aug.) percepto posuit, alterum eodem die Sextilius Agesilaus Aedesius V. C. taurobolio criobolioque in aeternum renatus (cf. p. 53. 57. 59).
+
+Anno vero post exarati sunt:
+
+Tit. _C. I. L. 6, 511_ metricus Matri deum Magnae Idaeae et Attidi Menotyranno a Sabino IIII Id. Mart. (d. 12 m. Martii) et tit. _C. I. L. 6, 500_ iisdem deis a Caelio Hilariano V. C. 3 Id. Maias (d. 13 m. Maii).
+
+Sequitur tit. _C. I. L. 6, 1780_ Fabiae Aconiae Paulinae clarissimae feminae, filiae Aconii Catullini V. C., uxori Vettii Praetextati V. C., quae multis deorum dearumque sacris initiata erat, tauroboliatae positus; cum vero munus praefecturae urbis, quo coniunx eius a. 384 functus est (cod. Theod. 6, 5, 2. cod. Iustin. 1, 54, 5), in titulo coramemoretur idemque consul designatus appelletur, quo facto vita excessit anno eodem vel sequenti* titulum nostrum non ante a. 384 erectum esse constat.
+
+*) Mortem eius luget Symmachus epp. 10, 30 sq.
+
+Paulo post ortus est tit. _Bull. inst. arch. 1884 p. 56 sq._, quera posuisse videtur 2 Non. Sept. Arcadio et Fl. Bautone V. C. consulibus (d. 4 m. Sept. a. 385)* uxor coniugi suo Alfenio Ceionio Iuliano Kamenio anno 43 mortuo, quem eundem fuisse atque illum Alfenium, de quo supra dixi (p. 25), nequaquam verisimile est; quod si acciperemus, aut multo post eius mortem sepulcrum factum aut numerus annorum a lapicida falso insculptus esset, cui sententiae obstant verba: "obiens iuvenilibus annis" et "te coniunx cum parvis deflet natis." itaque arbitror illum Ceionium patrem nostri fuisse, qui uterque sanctus nominatur atque eosdem honores percurrit.
+
+*) Sequuntur versus pulcherrimi:  inter avos proavosque tuos sanctumque parentem  virtutum meritis et honoribus emicuisti,  ornamentum ingens generis magnique senatus;  sed raptus propere liquisti, sancte Kameni,  aeternos fletus obiens iuvenilibus annis.  te dulcis coniunx lacrimis noctesque diesque  cum parvis deflet natis solacia vitae,  amisisse dolens casto viduata cubili,  quae tamen extremum munus solacia luctus  omnibus obsequiis omat decoratque sepulcrum.
+
+Tum vero tit. _C. I. L. 6, 1778_ Vettio Agorio Praetextato V. C. tauroboliato Kal. Febr. Fl. Valentiniano Aug. 3 et Eutropio consulibus (d. 1 m. Febr. a. 387) positus est et tit. _C. I. L. 6, 1779_ eidem et Aconiae Fabiae Paulinae uxori (cf. supra), qui coniuncti vixerunt annos 40 ad eundem annum spectat tit. _C. I. A. 3, 173_, quo consulibus Onorio et Euodio 6 Kal. Iun. (d. 27 m. Maii), cum Hermogenes archon* fuit, Musonius Athenis taurobolium percepit; quoniam vero tit. _C. I. A. 3, 172_* primum taurobolium Athenis factum commemoratur, manifestum est hunc titulum illo antiquiorem esse atque Iuliani fortasse aetate exaratum.
+
+*) Cf. Henzen. bull. inst. arch. 1867 p. 174.
+
+*) V. Keil. Philol. 23, 607. archäol. zeitung 1863 p. 74. arch. anzeiger 1867. Maurer de aris Graecorum pluribus deis in commune positis. Darmstadii 1885 p. 101. Kaibel epigr. gr. 822.
+
+Restant duo tituli: _C. I. L. 6, 503_ a L. Ragonio Venusto V. C. taurobolio criobolioque percepto 10 Kal. Iun. Valentiniano Aug. IIII et Neoterio consulibus (d. 23. m. Maii a. 390) et tit. _C. I. L. 6, 512_ eodem anno et die a Ceionio Rufio Volusiano V. C. iterato annis 20 expletis taurobolio dedicatus.
+
+Quamquam nullus titulus ad posteriorem aetatem pertinere videtur,* tamen cultum Matris Magnae ceterorumque deorum orientalium* aliquanto post viguisse scriptis patrum ecclesiasticorum Ambrosii (cf. Migne patrol. lat. 16 p. 980) et Augustini de civitate dei satis confimiatur (2, 4).
+
+*) Titulum C. I. L. 6, 736 non attuli propterea quod multa in eo suspiciosa sunt.
+
+*) Cf. tit. C. I. G. 4945. 4946, qui ad Isidis cultum spectantes annis 449 et 453 (Boeckhius ambos tribuit anno 453) positi sunt.
+
+Priusquam finem huius partis absolvam, de Matris Magnae apud Germanos cultu brevia addere mihi liceat. Tacitus enim dicit in Germ. c. 45: "ergo iam dextro Suebici maris litore Aestiorum gentes adluuntur, quibus ritus habitusque Sueborum, lingua Britanniae propior. Matrem deum venerantur. insigne superstitionis formas aprorum gestant: id pro armis omnique tutela securum deae cultorem etiam inter hostis praestat." quibus cum verbis conferendum est id quod legimus c. 9: "pars Sueborum Isidi sacrificat." notum autem est Germanorum deos a Romanis libenter cum suis comparatos esse ita ut Mercurium Martem Herculem ab illis cultos esse memoriae tradat Tacitus. quaeritur quae nomina Isis et Mater deum apud Germanos habuerint. Isidi autem similem fuisse deam Suebis sacram, quae Zise nominabatur non sine aliqua probabilitate Grimm (deutsche myth. 2 1 p. 236 sq. 275 sq. cf. O. Schade die sage von der heiligen Ursula etc. 1854 p. 71 sqq.) coniecit. attamen quae dea erat Mater deum? equidem arbitror eam fuisse terram matrem, quae in titulis nobis occurrit nomine Hludanae (cf. Brambach. C. I. Rh. indicem s. h. v.); nec quod Schwenck (mythol. d. Germanen p. 179) exposuit cogitandum esse, quia Tacitus l. l. aprorum formas commemorat, de dea "Frigg" vel "Freya," cuius cognomen erat "Syr" (mutterschwein), hoc meae sententiae obstat, quoniam etiam "Freya" nulla alia dea est nisi mater terra.*
+
+*) Mater Magna in titulo C. I. L. 8, 5524 cum Terra Matre et Aerecura, de quo nomine egit Mommsenus in archäol. ztg. a. 1865 p. 88 (aes --- curare geldschafferin), haud dubie propterea coniungitur, quod illa numina ei similia erant.
+
+# Caput II.
+
 ...
