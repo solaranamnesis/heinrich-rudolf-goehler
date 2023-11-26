@@ -266,7 +266,7 @@ Quos titulos si accuratius inspexerimus, intellegemus plerosque positos esse a v
 
 *) Cf. cap. 4. de Cerealibus vide Friedlaender. ap. Marquardt. l. l. 3 p. 479.
 
-1) Cf. p. 232 ed. Hertlein: [GREEK]. Amm. Marc. 22. 9, 5-8. Libanius in orat. consulari p. 247 et in monodia de Iuliani obitu p. 254.
+*) Cf. p. 232 ed. Hertlein: [GREEK]. Amm. Marc. 22. 9, 5-8. Libanius in orat. consulari p. 247 et in monodia de Iuliani obitu p. 254.
 
 Quo mortuo praecipue Theodosius* (a. 379-395) religiones paganas funditus evertere conatus est; quamquam ipsius temporibus viri praeclarissimi Symmachus* (cos. a. 391), Vettius Agorius Praetextatus* († cos. designatus a. 385), Virius Nicomachus Flavianus* (cos. a. 394) cultui pagano dediti erant. in quos invehitur anonymus auctor carminis codicis Parisini n. 8084, quod a Mommseno in Hermae vol. 4 publici iuris optime factum hac aetate compositum est.
 
