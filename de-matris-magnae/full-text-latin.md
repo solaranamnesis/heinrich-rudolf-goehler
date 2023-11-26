@@ -236,7 +236,24 @@ Cavedonius autem (Ann. Inst. 19, 136) demonstravit [GREEK] et [GREEK] referenda 
 
 Nunc audiamus Cyprianum,* qui ab a. 200 usque ad a. 257 floruit, episcopum Carthaginiensem, qua in regione Matrem Magnam cultam esse compluribus inscriptionibus confirmatur (cf. C. I. L. 8, 1649. 1776. 2230. 2633. 4846 etc. Eph. E. 5, 614), in carmine ad senatorem ex christiana religione ad idolorum servitutem conversum sic loquentem:
 
-quis patiatur enim te matrem credere magnam  posse deam dici rursusque putare colendam,  cuius cultores infamia turpis inurit?  namque sacerdotes tunicis muliebribus idem  interius vitium cultu exteriore fatentur,  idque licere putant quod non licet: unde per urbem  leniter incedunt mollita voce loquentes,  lassatosque tenent extenso pollice lumbos  et proprium mutant vulgato crimine sexum.  cumque suos celebrant ritus, his esse diebus  se castos memorant: at si tantummodo tunc sunt  ut perhibent casti, reliquo iam tempore quid sunt?  sed quia coguntur saltim semel esse pudici,  mente fremunt, lacerant corpus funduntque cruorem.  quale sacrum est vero quod fertur nomine sanguis?*  nunc etiam didici, quod te non fecerit aetas,  sed tua religio calvum caligaque remota  Gallica sit pedibus molli redimita papyro.
+quis patiatur enim te matrem credere magnam  
+posse deam dici rursusque putare colendam,  
+cuius cultores infamia turpis inurit?  
+namque sacerdotes tunicis muliebribus idem  
+interius vitium cultu exteriore fatentur,  
+idque licere putant quod non licet: unde per urbem  
+leniter incedunt mollita voce loquentes,  
+lassatosque tenent extenso pollice lumbos  
+et proprium mutant vulgato crimine sexum.  
+cumque suos celebrant ritus, his esse diebus  
+se castos memorant: at si tantummodo tunc sunt  
+ut perhibent casti, reliquo iam tempore quid sunt?  
+sed quia coguntur saltim semel esse pudici,  
+mente fremunt, lacerant corpus funduntque cruorem.  
+quale sacrum est vero quod fertur nomine sanguis?*  
+nunc etiam didici, quod te non fecerit aetas,  
+sed tua religio calvum caligaque remota  
+Gallica sit pedibus molli redimita papyro.
 
 *) Cf. p. 50.
 
