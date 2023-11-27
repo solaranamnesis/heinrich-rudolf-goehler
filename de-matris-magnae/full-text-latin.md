@@ -68,7 +68,7 @@ Quamquam Athenienses cultu Matris Magnae reipublicae probato impedire studebant,
 
 *) Bouché-Leclerq histoire de la divination dans l'antiquité a. 1880 t. 3 p. 373 sq.
 
-# Caput I.
+# Caput 1.
 
 De Matris Magnae in orbe terrarum Romano cultu.
 
@@ -333,6 +333,6 @@ Priusquam finem huius partis absolvam, de Matris Magnae apud Germanos cultu brev
 
 *) Mater Magna in titulo C. I. L. 8, 5524 cum Terra Matre et Aerecura, de quo nomine egit Mommsenus in archäol. ztg. a. 1865 p. 88 (aes --- curare geldschafferin), haud dubie propterea coniungitur, quod illa numina ei similia erant.
 
-# Caput II.
+# Caput 2.
 
 ...
