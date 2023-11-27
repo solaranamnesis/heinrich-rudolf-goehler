@@ -335,4 +335,404 @@ Priusquam finem huius partis absolvam, de Matris Magnae apud Germanos cultu brev
 
 # Caput 2.
 
+De reliquis rebus ad cultum pertinentibus.
+
+Ac primum quidem hoc capite, quoniam initio dissertatiunculae exposui Cybelen confusam esse cum aliis deabus Asiae, videamus, cum quibus Romanorum numinibus Cybele et Attis coniungantur. reperimus autem tria numina, quae ei similia fuisse videntur*; ex imaginibus* enim perspicitur Cererem eandem habitam esse a Romanis ac Cybelen atque scriptores narrant* Maiam vel Opem fuisse alteram Matrem Magnam. quamobrem etiam explicari potest, cur tit. C. I. L. 6, 499 Matri Magnae et Hermae et Attidi positus sit; cognoscimus enim Matrem Magnam hoc loco esse Maiam, quam cum Maia Hermae matre a Romanis commixtam esse constat.* Romana quoque aetate factum est, ut Mater Magna vel pro Diana vel pro Minerva Graecorum haberetur, quo referendi sunt tit. C. I. L. 9, 1538-1542 Attidi et Minervae Berecyntiae dedicati.* Attin autem, in cuius locum saepe alios* Graeci substituunt, Romani cum Hercule confudisse videntur; quo spectant ea quae legimus apud Tertullianum 1, 361 (Migne): vidimus aliquando castratum Attin, illum deum ex Pessinunte, qui vivus ardebat, Herculem induerat, ad quem locum Le Nourry addit: in crudelibus illis spectaculis homines et sceleratos sumpta vel Atydis vel Herculis forma repraesentare castratum Atyn et vivum Herculem combustum.* Herculem autera fuisse Cybeles comitem ex Paus. 9, 19, 28, Strab. 10, 473, Diod. 5, 64 intellegimus (cf. Stuhr. religionssystem d. Hell. p. 482).
+
+*) Graeci, ut hoc addam, Cybelen confuderunt cum Rhea cf. p. 3, cum Hecato cf. schol. Lycophr. 77. Theodoret. Ther. serm. 1. Baumstark encycl. Paul. s. v., cum Cerere graeca cf. Euripidis locos p. 4 adn. 1. in locis Aristoph. Lemn. frg. 332 ed. Dind. et Plut. de virtut. mul. 9 Cybele conversa esse videtur in formam Artemidis Brauroniae.
+
+*) Cf. Mueller-Wieseler l. l. 2, 807, quo Cybele a leonibus circumdata dextera spicas et papaver tenens conspicitur; et Livia quoquo sub imagine Cybeles spicis Cereris ornatum est cf. p. 11. C. I. L. 5, 796 M. D. M. Cereriae votum solvit Fruticia Thymele.
+
+*) Macrob. 1, 12, 20 sq. Arnob. 3, 32 cf. Tertull. adv. nat. 2, 12.
+
+*) Preller röm. myth. p. 597. Mionnet 4, 166 quo Cybele Hermen sinistra manu tenet. Jhrbb. d. vereins v. altertumsfr. im Rheinl. 23 p. 53 tab. 3, ubi Mater Magna in sinistra parte circumdatur ab Herme, in dextera ab Attide. vix autem hoc in prostypo cogitandum est de Herme-Cadmilo (Conze archäol. ztg. 1880 p. 1 sq.).
+
+*) Preller röm. myth. p. 739.
+
+*) Bacchum, Sabazium, cuius mater Cybele nominatur a Strabone 10 p. 470 sq., Panem cf. Mueller-Wieseler l. l. tab. 43 n. 543. Lucian. Icaromenipp. 27, Hermen-Cadmilum cf. Conze archäol. ztg. 1880 p. 1 sq.
+
+*) Dissert. de Arnob. l. c. 14 art. 2. cap. 18 art. 1.
+
+Deinde de cognominibus, quae Matri Magnae indita sunt a scriptoribus et in nummis,* verba ita faciamus ut, quo plenior exhibeatur conspectus, ne Graecorum quidem testimonia negligamus; reperiuntur haec:
+
+*) Be cognominibus, quae insunt in titulis cf. indicem s. v. Mater Magna.
+
+[GREEK] Strabo 10, 469. Diog. 50. 6, 1. Lucian. amor. 42. [GREEK] Arr. tact. 33, 4. dea Phrygia Verg. Ae. 7, 39. mater Phrygia Arnob. 2, 73. [GREEK] Iulian. epp. 21.
+
+[GREEK] (Idaea) Strabo 1, 45. 10, 469. Eur. Or. 1453. Apoll. Rhod. 1, 1128. Dion. H. 2, 19. Verg. Ae. 10, 252. Lucret. 2, 611. Liv. 29, 10. Hygin. fab. Hesych. s. v. Apul. met. 8, 25 (ed. Eyssenh.).
+
+[GREEK] (Dindymene) Strabo 10, 469. Herod. 1, 80. Paus. 7, 17, 5. Apoll. Rh. 1, 1125. Hor. od. 1, 16, 5. Martial. 8, 81.
+
+[GREEK] Strabo 10, 469. Eckhel d. n. v. 2, 534.
+
+[GREEK] Strabo 10, 469.
+
+Berecyntia mater (deum genetrix) Verg. Ae. 6, 784. Arnob. 5, 9. 13. Ovid. f. 4, 335. August. d. civ. d. 2, 4. carmen cod. Paris. 8084 v. 73 (Herm. 4, 356).
+
+[GREEK] Nic. Alex. 7 et schol.
+
+[GREEK] Herod. 1. 11, 3. Strabo. 10, 469. Pessinuntia Apul. met. 10, 5 ed. Eyssenh. Pessinuntia Dindymene Arnob. 4, 35. cf. Mionnet. 4, 391.
+
+[GREEK] Paus. 5, 13, 4.
+
+[GREEK] Steph. Byz. s. v. Strabo 13, 614.
+
+Mygdonia Val. Flacc. 2, 46.
+
+Mater Iliaca Prudent. c. Symm. 1, 629.
+
+[GREEK] Theodor. Therap. serm. 1. cf. Orph. Arg. v. 16 sq.
+
+[GREEK] Arrian. peripl. 9.
+
+Cybeleia mater Ovid. Ib. 453.
+
+Mater deum salutaris Cohen 2 2 p. 431.
+
+[GREEK] Apoll. Rh. 1, 1141.
+
+[GREEK] Hesych. s. v. Etymol. m. s. v. Orph. hymn. 41, 1.
+
+[GREEK] Iul. or. 5 p. 180 (ed. Hertl.).
+
+caelicolum genetrix cf. Sil. Ital. 17, 3; de voce "[GREEK]" cf. p. 4 adn. 1, de voce "mater deum conservatrix" p. 17, de voce "Mater turrita" p. 46. deinde tituli C. I. A. 2, 134-137, ubi Mater Magna [GREEK] appellatur, nos docent eam etiam morbos sanavisse. attamen quid significet nomen "Mater Magna Cognationis," quod in duobus titulis Salonis rep. extat (archäol. epigr. mitt. aus Östr. 8 p. 111), nescio.
+
+Quod pertinet ad Attidis cognomina, haec adnotatione digna mihi esse videntur:
+
+Berecyntius Attis Pers. sat. 1, 93.
+
+[GREEK] Herod. 4, 59. hymn. in Attin. Diod. 3, 58, 4. Eustath. in Hom. 2. [GREEK], 408.
+
+[GREEK] Iulian. or. 5 p. 168 C. 169 C.
+
+[GREEK] Iul. l. l. p. 171 C. atque in titulis nominatur Attis Menotyrannus ([GREEK]), quia idem est ac Sol.*
+
+*) C. I. G. 3439 [GREEK] logitur. Macrob. sat. 1, 21. Arnob. 5, 42. Stuhr l. l. p. 130. Jhrbb. d. ver. v. altertumsfr. i. Rheinl. 23 p. 53 sq. Lebas-Wadd. l. l. 3 adn. ad n. 668. Maurer de aris Graecorum pluribus deis in commune positis. Darmstadii 1885 p. 103. Cybele quoque lunae domina habita esse videtur quia in prostypo (archäol. epigr. mitt. aus Östr. 1, 1877 p. 14 tab. 3) lunae falx in capite conspicitur.
+
+Nunc vero breviter exponam, quomodo scriptores posterioris aetatis et philosophi et patres ecclesiastici fabulam Matris Magnae et Attidis interpretati sint. Iulianus autem in or. 5 p. 161 D. et Sallustius de natura deorum 4* putant ea ostendi, quomodo anima de coelo ad corpus humanura deveniat atque postremo ad deos redeat, aut quoniam ambo student philosophiae, quam novam Platonicam nominamus, ea per allegoriam significari, quomodo numen divinum paulatim atque gradatim usque ad materiem, quae [GREEK] appellatur, descendat rursusque ea ascendat ad sublimiora.* aliquanto ante aliter explicavit fabulam Porphyrius ap. Euseb. praep. ev. 3, 7 sic: [GREEK]; quem secuti sunt Lactantius inst. d. 1, 17, Iul. Firm. Maternus 3, 5, Augustinus de civ. dei 7, 25. 2, 4. 6, 8 (cf. C. I. L. 6, 509 = Kaibel epigr. gr. 824). quo loco etiam commemorabo Isidem, cuius cultus haud scio an maxime floruerit in toto orbe terrarum Romano, cum Matre Magna aequari ab Apuleio met. 11, 5; ac si inscriptiones pervestigamus, interdum Mater Magna cum ea coniungitur,* quod mea quidem sententia inde explanatur, quod unaquaeque Mater deum Romanis esse videbatur.
+
+*) Mater itaque deorum vivifica dea est ideoque Mater vocatur: Attis eorum quae fiunt et corrumpuntur artifex; huic apud Gallum flumen compertus traditur. Gallus enim Galaxiam seu lacteum orbem, unde corpus passionibus obnoxium descendit, indicat. primis autem diis secundos perficientibus Mater Attidis amore correpta caelestes illi facultates largitur: is enim pileus est. Attis autem Nympham deperit: cum Nymphae generationi praesint; nam quodcumque fit, fluit. quoniam vero generatio sistenda erat, ne extrema semper deterius progignerent, ea molitus opifex facultates ad generandum fecundas dimittens iterum cum diis coniungitur. et haec quidem numquam facta sunt, cum semper sint et mens quidem omnia simul conspicit; at sermo haec quidem prius, illa posterius effert. hac ratione cum aptissime mundo fabula respondeat, nos quanam alia ratione nitidius ornaremur quam mundum imitantes? propter illa festum diem agimus. et primum sane ipsi e coelo delapsi et cum Nympha consuescentes in maerore vivimus a frumento alioque crasso et sordido cibo abstinentes, quandoquidem utraque animo sunt contraria. deinceps arboris incisiones et ieiunium, quasi nos ipsi ulteriorom generationis progressum amputaremus: tandem ex lacte alimentum, quasi renasceremur. hinc festivitates (hilaria) et coronae et ad deos veluti reditio. hisce et tempus, quo fiunt, testimonium exhibet; circa enim veris aequinoctium ea quae diximus conficiuntur, cum quae fiunt fieri cessant, diesque nocte magis ac magis protenditur: quod animis, qui ad sublimiora gradum faciunt, proprium est. sic circa oppositum aequinoctium raptus Proserpinae successisse fingitur, qui descensus ost animorum.
+
+*) Cf. Visconti. ann. inst. 41 (1869) p. 226.
+
+*) C. I. L. 5, 4007 cf. Wilmanns. ex. 2088. C. I. L. 9, 1153. 6099. Lafaye l'histoire du culte des divinités d'Alexandrie Isis etc. 1884 p. 276 n. 40.
+
+Sed ad alia transeamus. Lucianus quod Pseudol. 11 dicit: [GREEK]; (Mart. 8, 81 non per mystica sacra Dindymenes... iurat Gellia), hoc per se intellegitur. attamen maioris est momenti, quod nomen Matris deum invenitur in oraculo talario,* quod Attaliae repertum edidit Kaibel Herm. vol. 10 p. 193 sq. et epigr.gr. n. 1038. scimus patres ecclesiasticos cupidinem sortis ex talis cognoscendae, qui in aris deorum positi erant (Paus. 7, 25, 6. Pind. Pyth. 4, 337), acriter castigasse. leguntur autem in hoc oraculo, in quo quinque tantum tali adhibiti sunt, quibus numeri 2 et 5 deerant, n. 9 haec:
+
+[GREEK]
+
+atque profecto non modo in oraculo talario extat nomen Matris deum, sed etiam in carmine, quod ex Apulei cuiusdam libello traditum in Geoponicis (ed. Niclas 1781) 13, 5, 4 legitur: [GREEK].*
+
+*) Similia oracula reperies C. I. G. 4310. 4379. 3956 c ? cf. Stuhr l. l. p. 483. de ludo talario apud Romanos egit in universum Friedlaender darstell. aus d. röm. sittengesch. 5 1 p. 376 sq.
+
+*) [GREEK] restituit Kaibel ex Philostorg. h. eccl. 7, 15 [GREEK] (Iulianus) [GREEK].
+
+*) Cf. Marquardt. l. l. 3 p. 107 adn. 7.
+
+Denique restat ut hoc capite disputem, quomodo Cybele et Attis ab artificibus fingantur atque quae res iis sacrae sint. sacra autem erat Matri Magnae pinus, sub qua Attidem sibi desecuisse genitalia fabula narrat; cum vero Probus ad Vergilii G. 2, 84 dicat cupressum ei sacram fuisse, inde hoc explicandum est, quod Mater Magna coniungitur cum Rhea Cretensi, qua in insula illa arbor imprimis floruit. contra Aeliani verba: [GREEK] sc. [GREEK] (de anim. 12, 4) dubia mihi esse videntur, quoniam nusquam alibi hoc traditur neque in imaginibus haec avis ei tribuitur.
+
+Ceterum saepe finxerunt Cybelen veteres non solum Romani, sed etiam Graeci;* nam Phidia (vel Agoracrito) Damophonte exceptis Nicomachus quarto saeculo exeunte eam in leone sedentem pinxit. leones autem semper fere Matris deum comites sunt, quapropter in anthol. Palatina ed. Duebner 1, 201 [GREEK] nominatur; atque rectissime de Vogüé haec adnotat (mélanges d'archéolog. orientale p. 45): la grande déesse Syrienne de Hiérapolis, la déesse Phrygienne des basreliefs de Tjazikeni, la Rhéa-Cybele mère des dieux, Vénus-Uranie de Phrygie et d'Asie-Mineure, la Tanit ou Artémis Céleste de Carthage, la Junon que Diodore associe à Juppiter Baal dans le temple de Bel à Babylone, l'Atergatis Syrienne, l'Anaïtis des cylindres Assyro-Chaldéens: toutes ces divinit6s ont pour caractéristique d'être portées par le lion.
+
+*) De simulacris Matris Magnae Graecis inspiciendae sunt commentationes Conzii Hermes-Kadmilos in archäol. ztg. 1880 p. 1-10, Koertii die antiken skulpturen aus Böotien in mitt. d. d. arch. inst. z. Athen 3 p. 329 sq., L. Gurlittii votivrelief an die göttermutter in arch. ztg. 1880 p. 187, Stephanii der ausruhende Herakles p. 68, Curtii-Kauperti atlas v. Athen blatt 8, 1.
+
+Quomodo Romani Matrem Magnam effinxerint, optime perspiciemus, si simulacra explanabimus Lucretii verbis antea allatis. dicit enim l. 2 v. 600 sq.:
+
+hanc veteres Graium docti cecinere poetae sublimem in curru biiugos agitare leones: aeris in spatio magnam pendere docentes tellurem; neque posse in terra sistere terram. adiunxere feras, quia quamvis effera proles officiis debet molliri victa parentum. muralique caput summum cinxere corona, eximiis munita locis quod sustinet urbeis: quo nunc insigni per magnas praedita terras horrifice fertur divinae matris imago.*
+
+*) Albericus de deorum imagine c. 12: "cui (Cybelae) antiqui philosophi talem imaginem depinxerunt. erat enim virgo femina in curru sedens lapidibus pretiosis et metallorum diversorum varietate vestita. currus autem Cybeles a leonibus trahitur coronamque turritam in capite gestare dicitur. pingitur iuxta eam in curru Atys puer nudus, quem illa amasse dicitur et nimio zelo castrasse: et sic illi virilia pingitur amputare." quomodo autem philosophi Cybeles simulacra explicarint, apparet ex Iuliano p. 167 B et Varrone ap. Aug. de civ. dei 6, 24: eandem dicunt Matrem Magnam, quod tympanum habeat, significare esse orbem terrae, quod turres in capite, oppida: quod sedes fingantur circa eam, cum omnia moveatur, ipsam non moveri.
+
+Cybele autem non solum in bigis* atque quadrigis* leonum vehitur, sed etiam aut a duobus leonibus* circumdata est aut ab uno,* aut in leone currente sedens* aut leonem in gremio portans* apparet. caput eius corona murali* ornatum erat, quapropter mater turrita nominatur.* maxime autem proprium est Cybelae, ut Isidi sistrum, tympanum,* illud instrumentum vocale, quod digitis palmaque pulsabatur (Suet. Aug. 68), corio imprimis bubulco tectum,* quocum coniungitur interdum cymbalum, instrumentum aereum, cavum, hemicycli figura, quod percussum instar crotali, sistri sonum edebat. quae instrumenta usitatissima fuisse in Matris Magnae sacris et a poetis* et nummis aliisque Cybeles imaginibus satis superque confirmatur.* ad extremum, ut nihil omittamus, Mater Magna in multis nummis fingitur aut cornu copiae,* aut pateram,* aut ramum,* aut sceptrum* manu tenens.
+
+*) Mionnet l. l, 4, 5 in nummo Severo Alexandro imperatore in Lydia excuso. Cohen l. l. 2 2 p. 417 (Faustina mater). Mueller-Wieseler l. l. 2 n. 813 a C. I. L. 6, 505.
+
+*) Cohen 2 2 p. 129 (Hadrianus). 382 (Antoninus). 1 3 p. 333. 349 n. 170. 172 (Iul. Aug.).
+
+*) Mueller-Wieseler 2, 807. Mionnet 3, 388. suppl, 7, 401 (Domitian). Cohen 1 3 p. 338. n. 63. 349 n. 174. 175. 178. 179 (Iul. Aug.). 556 (Iul. Soaemias). 2 2 p. 399 (Sabina). 431. 439 (Faustina). 2 3 p. 122 (M. Aurelius). 150. 164 (Faustina minor natu). 223 (Lucilla).
+
+*) Mionnet 3, 161 (Maximinus. Otacilla. Philippus minor natu). Cohen 1 3 p. 338 n. 65. 66. 71 (Iulia Aug.). 2 2 p. 129 (Hadrianus). 250 (Sabina). 2 3 p. 150 n. 172 (Faustina minor natu).
+
+*) Cohen 1 3 p. 249 (Severus Pius Aug.) 418 (Caracalla). 2 2 p. 254 (Sabina). 439 (Faustina). 2 3 p. 223 (Lucilla).
+
+*) Jhrbb. d. ver. von altertumsfr. im Rheinl. 23 tab. 3. Mordtmann mitt. d. d. arch. inst. z. Athen 6, 265 ? Archäol. epigr. mitt. aus Östreich 7, 1883 p. 124.
+
+*) Mueller-Wieseler 2, 806. 807. 809. Mionnet. 3, 159 (Iulia Domna). suppl. 7 p. 400. Cohen 1 3 p. 338 sq. 349 (Iul. Aug.). 418 (Caracalla). 556 (Iul. Soaemias). 2 2 p. 254 (Sabina). 431 (Faustina mater). 2 3 p. 150 (M. Aurelius). 223 (Lucilla). 274 (Commodus). 392 (Pertinax).
+
+*) Arnob. 5, 7. Luc. de dea Syr. 15. Aug. d. civ. d. 7, 24.
+
+*) [GREEK] Cybele appellatur in Orphei hymn. 27, 11.
+
+*) Ovid f. 4, 342. Stat. Theb. 2, 78. Claud. 3 cons. Stil. 364. Phaedr. 3, 20.
+
+*) Verg. Ae. 9, 619. G. 4. 64. Ovid f. 4, 342. Catull. 63, 8. 20. 64, 261. Mart. Cap. 2 p. 46 ed. Eyss.
+
+*) Cf. etiam C. I. L. 3, 1952.
+
+*) Mionnet suppl. 7, 400 n. 384 (cornu copiae et duo papavera). 385 (c. c. et duas figuras.)
+
+*) Mionn. 3, 160. 4, 270. suppl. 7, 400 n. 383. 386. p. 401. Cohen 2 2 p. 129. 250. 399 (pateram et sceptrum).
+
+*) Cohen 1 3 p. 338 n. 61. 62. 63-64 (ramum et sceptrum). 65. p. 340 n. 170-172. 174. 175. 179. p. 418 n. 407-409. p. 556 n. 12. 13. 2 3 p. 150 n. 172. cf. Mueller-Wieseler 2, 813 a. C. I. L. 6, 505.
+
+*) Mionnet 3 p. 160. 161. Cohen 1 3 p. 338 n. 71. 72. p. 249 n. 130. 131-132 (sceptrum et fulmen). 2 2 p. 254. 439 n. 304. 306. 2 3 p. 122. 223. 274.
+
+Attidis* autem ad truncum arboris, de qua dependent cymbala, se applicantis statua extat in Vaticano, in qua ut semper fere fit eius caput pileatum est corpusque nudum, ut eunuchi formae cognosci possint. ut in hoc simulacro tympanum (cf. C. I. L. 6, 505) et pedum (cf. C. I. L. 6, 509) in manibus habet, sic in prostypo elephantino bibliothecae Vaticanae in tauro sedens atque praeter bracas chitone et chlamyde indutus pedum et syringem, quibus instrumentis pastor significatur aeque ac venator in lucerna, in qua arcu sagittisque instructus est eumque canis sequitur.*
+
+*) Attis in monumentis sepulcralibus cf. jhrbb. d. ver. v. altertumsfr. im Rheinl. 19, 60. 23, 49 sq. tab. 1 fig. 2. tab. 2 fig. 1. 2. tab. 3. monumenti dell' inst. vol. 9 tab. 8, 2; quoniam Visconti (ann. inst. 41, 1869 p. 224 sq.) diligentissime disputavit de illa pulchra Attidis figura sarcophagi Ostiensis, cui insculpta est inscriptio: Numini Attis C. Cartilius Euplus ex monitu deae, hoc loco sufficit eius mentionem facere.
+
+*) Encycl. Paul. 1, 2, 2115. Mionn. 5 p. 301. suppl. 9, 231. de aliis Cybeles et Attidis imaginibus cf. Zoëga Bassirilievi. Mionn. 4, 391. Cohen 1 3 p. 439. 2 3, 164. 223. gravissimum autem monumentum extat in ara, quam dedicavit L. Cornelius Scipio Orfitus (C. I. L. 6, 505); quod cum saepissime a viris doctis exploratum sit, hoc loco de eo plura dicere mihi supervacaneum esse videtur. Haackhii autem sententia, qui ex verbis Plut. v. Marii 17: [GREEK], tum ex monumentis iuxta Rhenum repertis, in quibus duo iuvenes, quorum unusquisque Attis est, conspiciuntur, cogitandum esse concludit de fratribus quos cum Dioscuris comparat, reicienda est; nam [GREEK] per se etiam ad Cybeles et Attidis sacrarium referri possunt atque in monumentis illis duplex Attidis imago in utraque parte non nisi praeter symmetriam ficta est (verhdl. deutsch. philolog. in Stuttg. 1857 p. 156 sq.).
+
+Haec habui, quibus ad illustrandum Cybeles et Attidis cultum Romanorum aliquid conferre posse viderer.
+
+# Caput 3.
+
+De sacerdotibus et diebus festis.
+
+Postquam cultum Cybeles Romani cognoverunt, sacerdotes deae magnam auctoritatem nancti sunt, qui initio ex Phrygia arcessiti primum duo, deinde plures erant et lingua Graeca utebantur (Serv. ad Verg. G. II, 394). Hi vero galli se ipsi mutilabant exemplum Attidis secuti, quapropter spadones (Hor. sat. 1, 2, 120), semimares* (Ovid. f. 4, 183), semiviri,* nec viri nec feminae,* Gallae (Cat. 63, 12. 34) nominantur.* facta autem est castratio testa* (testula) sponte ac quasi furore Agdestio,* quem sonitus tympani, cymbali, crotali saltationesque iniecerunt. hoc quidem loco Luciani narrationem citabo, quae etiamsi de gallis deae Syriae agitur tamen etiam ad gallos Matris Magnae referri potest; leguntur enim de d. Syr. 51 haec: [GREEK] (hoc instrumento utuntur galli deae Syriae) [GREEK].* porro dicit Gallis fuisse communem locum sepulturae atque de regulis loquitur, ex quibus una certe ad nostros quoque gallos spectat sues neque sacrificandos neque edendos esse.*
+
+*) Attis etiam semimasculus nominatur ap. Fulgent. myth. 3, 5.
+
+*) Seneca epp. 108. Iuv. 6, 513.
+
+*) Verg. Ae. 9, 617. Ovid f. 4, 455.
+
+*) De nomine cf. anecd. gr. ed. Bachm. p. 341 et vett. lexicographos; invenitur etiam nomen [GREEK] Luc. Eun. 18. Cronos. 12. Athen. 4, 134 b. [GREEK] cf. Leutsch. paroemiogr. p. 152. Galli sanguinei nominantur a Lucano 1, 567. Claudian. rapt. Pros. 2, 269. Prop. 2, 18, 15. cf. Iamblich. de myst. 2, 4. Manetho. apotel. 6, 297 sq. (ed. Koechly 3). Minuc. Fel. Oct. 22.
+
+*) Plin. h. n. 35, 165. Iuv. 6, 511. Cat. 62, 5. Mart. 3, 81, 3. Arnob. adv. n. 5, 16. 17.
+
+*) Luc. do d. Syr. 26. Arnob. 5, 13.
+
+*) Firm. de err. prof. rel. p. 6. Aug. de civ. dei 7, 26.
+
+*) Gallis licuisse non videtur [GREEK] cf. Athon. p. 222 D. a feminis eos amari (Luc. de d. Syr. 22) legimus apud Westermanni mythographos p. 388, 9 sq. quantopere autem posteriore aetate despecti sint, elucet ex Apul. met. l. 8 p. 182: tunc fortuna mea saevissima emptorem aptissimum duris meis casibus mire repertum obiecit; cinaedum et senem, calvum quidem cincinnis semicanis et pendulis capillatum: unum de triviali popularium faece, qui per plateas et oppida cymbalis et crotalis personantes deamque Syriam circumferentes mendicare compellunt. similiter dicit August. d. civ. d. 2, 26: itemque de mollibus eidem Matri Magnae contra omnem virorum mulierumque verecundiam consecratis, qui usque in hesternum diem madidis capillis, facie dealbata, fluentibus membris, incessu femineo per plateas vicosque Carthaginis etiam a populis unde turpiter viverent exigebant (nihil Varro dicere voluit nec uspiam me legisse commemini). defecit interpretatio, erubuit ratio, conticuit oratio. alludunt profecto ad hunc morem medicandi, a quo valde aliena erat Romae consuetudo Matris Magnae sacerdotum certis diebus stipis exigendae, et Tertullianus ap. c. 15: circuit caupona religio mendicans, exigit mercedem pro solo templi, pro aditu sacri, non licet deos gratis nosse, venales sunt, et Minuc. Fel. Oct. 24, 3 alii... mendicantes vicatim deos ducunt. cf. Lobeck. Aglaoph. 632. eadem nobis traduntur de Isidis sacerdotibus cf. Ovid. ex P. 1, 1, 37. Prop. 4, 8, 39. tales vero cinaedos nunc quoquo reperiri, qui Ciarauli nominati in Sicilia carmina in plateis docent, cognoscimus dissertatiuncula, quae extat in annalibus "allg. evang. luther. kirchenzeitung" a. 1883 n. 26 p. 613 sq.
+
+Sed iam redeamus, unde profecti sumus. Gallorum enim collegio Matris Magnae Palatinae praeerat archigallus; quomodo hic vestitus fuerit,* ex prostypo apparet, quod extat apud Wieselerum 2, 817: in capite coronam lauream de qua dependent duae taeniae,* tribus clipeis ornatam, quorum in medio Iuppiter Idaeus, in duobus ceteris Attis conspicitur, et mitras et velum et crotalia et occabum portat; ante pectus imago Attidis visitur; dextera autem tres ramos, sinistra canistrum frugibus impletum tenet et in veste [GREEK]* inest; praeterea tympanon tibiae cistaque in latere insculpta sunt.
+
+*) de Battacis vestimento cf. p. 9.
+
+*) Isid. orig. 19, 31, 6 taenia autem est vittarum extremitas dependens diversorom collorum.
+
+*) Cf. versus Erycii cuiusdam in anthol. Graeca ed. Iacobs 1, 262.
+
+Nomina autem archigallorum, qui aetate imperatoria e Romanis ipsis electi se non iam castrasse videntur, quippe cuni Domitianus lege interdixisset ne intra terminos iurisdictionis Romanae quisquam puerum castraret (Amm. Marcell. 18, 4,5), haec nobis in titulis occurrunt:
+
+C. Camerius Crescens archigallus Matris deum Magnae Idaeae et Attis populi Romani C. I. L. 6, 2183.
+
+Q. Caecilius Fuscus archigalli coloniae Ostiensis ann. inst. 40 p. 390 n. 4. 5. 41 p. 244.
+
+M. Modius Maximus ! archigalli coloniae Ostiensis ann. inst. 40 p. 390 n. 4. 5. 41 p. 244.
+
+L. Publilius Syntropus C. I. L. 5, 488.
+
+Pusonius Iulianus I. de Lyon p. 28. 31.
+
+Ulpius Iustus ! Orelli 2321.
+
+Valerianus Ephem. epigr. 3, 2.
+
+Virianus Ampliatus C. I. L. 10, 3810; hisce addam:
+
+[GREEK] (cf. p. 19) cf. C. I. A. 3, 173 p. 27. archigallus nomine non adiecto commemoratur C. I. L. 8, 8203; atque si recte C. I. G. 3953 d legitur [GREEK], eodem munere feminae quoque fungebantur, quod nihil praebet offensionis, quoniam Dionys. 2, 19 dicit Romae Phrygem et Phrygiam praefuisse sacris Idaeis.
+
+Archigallo autem aderant sacerdotes, quorum permulta nomina nobis tradita sunt. quamquam de sacerdotibus Matris Magnae Graecorum iam supra verba feci (cf. etiam p. 3 adn. 3), hoc loco commemorabo nomina [GREEK],* quod et viris et feminis datur, et [GREEK] feminae.* sed permagnus est numerus eorum, qui in orbe terrarum Romano sacra Matris deum obierunt:
+
+*) Anthol. Palat. ed. Duebner 6, 173 vv. Rhiani: [GREEK] (Migne patrol. graec. v. 38 ad v. 267 [GREEK]) [GREEK], et Dioscoridis vv. in anth. gr. p. 887.
+
+*) Kaibel epigr. gr. 44: [GREEK].
+
+[GREEK] C. I. G. 3668 (Dittenb. 270) cf. p. 10.
+
+[GREEK]* et [GREEK] C. I. G. 6012 c. (Kaibel epigr. gr. 823).
+
+*) De hac voce cf. Schoemann griech. altertümer 2 p. 415.
+
+[GREEK] C. I. G. 3508 cf. p. 14.
+
+[GREEK] nomine omisso C. I. G. 3193.
+
+Fl. Antonius Eustochius sacerdos Phrygius maximus, quem eundem fuisse atque archigallum arbitror C. I. L. 6, 508.
+
+Onesimus (Olympias, Livia, Briseis) C. I. L. 6, 496. cf. p. 12.
+
+M. Plaetorius Herculianus C. I. L. 6, 2258.
+
+Bassus Ann. Inst. 40 p. 375.
+
+T. Claudius Felix C. I. L. 10, 1596.
+
+Claudius Restitutus C. I. L. 10, 3698.
+
+Licinius Secundus C. I. L. 10, 3698.
+
+C. Iulius C. f. Hor. Severus sacerdos Isidis et Matris deum Wilmanns 2088.
+
+C. Raius Felix C. I. L. 9, 734.
+
+L. Sontius Pineius Iustianus, equitis Romani adnepos C. I. L. 9, 1540.
+
+Valerianus Pancarpus Or. 2326.
+
+Petronius Marcellus C. I. L. 9, 3014. 3015.
+
+P. Marius Pharetra C. I. L. 9, 3146.
+
+T. Attius T. lib. Atianus C. I. L. 9, 5061.
+
+Antiochus I. R. N. 6865.
+
+L. Valerius L. f. Fyrmus sacerdos Isidis Ostensis et Matris deum Transtiberinae O.-Henzen 5962.
+
+C. Laecanius Theodorus C. I. L. 5, 81.
+
+Q. Publicius Charito C. I. L. 5, 519.
+
+C. Varus Elpidephorus C. I. L. 5, 5862.
+
+C. Poblicius Olympus C. I. L. 5, 5881.
+
+Traianius Nundinius Gruter p. 30, 3.* Orelli 2331. Wilmanns 124.
+
+*) Omnes titulos Gruterianos stellulis adpositis indicavi, quoniam nonnisi inscriptionibus Galliae Transalpinae editis certe diiudicari potest, num illi aut sinceri aut accurate transscripti sint.
+
+Cassius Paternus Gruter 29, 10.
+
+M. Erotius Festus et M. Caninius Carus Gruter 29, 14. 30, 1.
+
+Zmynthius Proculiani lib. Gruter 30, 4. 5.
+
+P. (L.) Accius Agrippa ? Gruter 30, 4. 5.
+
+Q. Pasquius Chrestus Gruter 31, 4.
+
+Aelius Castrensis Boiss. p. 28. 31. 33.
+
+Q. Sammius Secundus Boiss. p. 24.
+
+Aelius Anthus Boiss. p. 36.
+
+Docuiricns Ephem. epigr. 3, 2.
+
+Aurelius Stephanus Eph. epigr. 3, 15.
+
+Aurelius Aquila C. I. L. 3, 5021.
+
+Aurelius Flavianus C. I. L. 3, 5021.
+
+Q. Valerius Severus Platiensis C. I. L. 8, 1649.
+
+C. Stitius Ianuarius C. I. L. 8, 2230.
+
+Q. Honoratus C. I. L. 8, 5707.
+
+C. Aemilius Saturninus C. I. L. 8, 8203.
+
+fortasse etiam... elsinius Capitolinus ex aede Bellonaes Pulvinesis fanaticus Matris deum C. I. L. 6, 490 inter eos numerandus est.* unus tantum relinquitur titulus C. I. G. 6206, quo haec legimus: [GREEK]. languescere autem mihi videtur coniectura Garrucci (mélanges d'archéologie et d'histoire 4, 1856), qui scribendum censet [GREEK] pro [GREEK]. admonet igitur Aurelius Antonius omnes sive mystas sive cuiuscunque vitae generis profanos (ut Welckeri verbis utar), ut plane se dederent mysteriis; qua in re hoc certe mirandum est, quod puer septennis non solum Bonadiae et Matris deum et Dionysi et Bacchi, cum recte Kaibel epigr. gr. 823 [GREEK] sic explicaverit: [GREEK], mysteriis initiatus sit, sed etiam eorundem sacerdos fuerit.
+
+*) Lapicidae incuriae debetur haec scriptura; [GREEK] legimus etiam in titulo, qui publici iuris factus est in "archäol. ztg. 1875" p. 148.
+
+Inter sacerdotes feminas respondet illi sacerdoti maximo C. I. L. 6, 508 sacerdos maxima C. I. L. 6, 502, ex quo titulo, etsi nomen iam non legitur, luculenter apparet eam fuisse filiam viri clarissimi. alteram autem sacerdotem maximam habemus in tit. C. I. L. 6, 2257, cui nomen est Laberia Felicia. praeterea extant haec nomina:
+
+Olympias, Livia, Briseis C. I. L. 6, 496.
+
+Aelia Antigona C. I. L. 2259.
+
+Claudia Acropolis Aug. liberta C. I. L. 2260.
+
+Galena C. I. L. 6, 2261.
+
+Decima C. f. Candida C. I. L. 10, 6074.
+
+Helvia Stephanis C. I. L. 10, 6075.
+
+Aemilia Secundilla sacerdotia Boiss. p. 36.
+
+Metilia Acte Or.-Henzen 7200.
+
+Eggia Sabina Bast. ? C. I. L. 9, 1100.
+
+Cantria P. f. Longina C. I. L. 9, 1153.
+
+Mummeia C. f. Atticilla C. I. L. 9, 1539.
+
+Cosinia Celsina consacerdos C. I. L. 9, 1540.
+
+...M. f. Marcella C. I. L. 9, 5848.
+
+Veronia Trofime C. I. L. 5, 3438.
+
+attamen in tit. C. I. L. 6, 508 cum G. Henzeno consentio, qui legendum arbitratur "sacrata deum Matris et Proserpinae" (cf. C. 1. 50. 6, 1780) contra Mommsenum, cui placet lectio "sacerdos."
+
+Iam vero transeamus ad dendrophoros,* qui arboris truncum 11 Kal. Apriles (d. 22 m. Mart.) per urbem portabant; quod legimus in carmine codicis Parisini 8084 (Herm. 4. p. 350) v. 103 sqq.:
+
+*) Diversa dendrophororum collegia fuisse notum est, quorum patronus erat Silvanus (cf. ann. inst. 40 p. 375), cui inditum est cognomen Dendrophori in tit. Orelliano 1602.
+
+vidimus argento facto iuga ferre leones,  lignea cum traherent iuncti stridentia plaustra,  dextra laevaque istum argentea frena tenere,  egregios proceres currum servare Cybebae,  quem traheret conducta manus Megalensibus actis,  arboris excisae truncum portare per urbem  Attin castratum subito praedicere Solem.
+
+quos sub cura 15 virorum fuisse perspicitur tit. C. I. L. 10, 3699; commemorantur autem collegia dendrophororum Mediolanensium C. I. L. 5, 5830 et Ostiensium Ann. Inst. 40 p. 367 sqq., deinde dendrophori Cumani C. I. L. 10, 3699. 3700.
+
+L. Pompeius Felicissimus dendrophorus immunis Suessulanus C. I. L. 10, 3698.
+
+dendrophori Lugduni consistentes Boiss. p. 31.
+
+dendrophori Valentini Herzog Gallia Narbon. n. 414 p. 88.
+
+L. Aemilius Carpus sevir Aug., item dendrophorus Boiss. p. 24.
+
+Magnus et Hermonianus dendrophori Matris deum Magnae Or. 1602.
+
+C. Metteius Exuperans dendrophorus decretarius C. I. L. 8, 7956.
+
+dendrophori C. I. L. 8, 7956. 8457.
+
+...enius Gr. f. Fatalis decurio splendidissimae coloniae Caesariensis, religiosus, qui aedi Matris Magnae ibidem exstructae praeerat atque munere dendrophori fungebatur C. I. L. 8, 9401. ac profecto probabile est iis archidendrophorum, quorum unus C. Antonius Eutyches nominatur C. I. L. 3, 763, praefectum esse neque intellego, cur non pertineat ad cultum Matris Magnae, praesertim cum Attidi titulum dedicet (cf. Marquardt l. l. p. 356). denique ex titulis concludendum est, dendrophoris non modo patronos (C. I. L. 10, 3699. Ann. inst. 40 p. 370. 374), sed etiam patres et matres* fuisse (Ann. inst. 40 p. 375. 383).
+
+*) Cf. p. 45.
+
+Deinde afferam cannophoros et cannophoras, quorum erat Idibus Martiis pompam ducere cannas manibus tenentium, quas alludere ad Attidem requirendum in canneto, in quo castratus latuit, argute coniecit Visconti (ann. inst. 41 p. 240 sq.). traduntur autem haec nomina:
+
+Felix collegius cannophororum; cum vero is annos 10 vixerit, pueri atque puellae cannas portasse videntur: C. I. L. 10, 24.
+
+Ennia Prisca collegia cannophorarum C. I. L. 9, 2480.
+
+collegium cannophororum C. I. L. 5, 5830.
+
+corpus cannophororum Ostiensium Ann. Inst. 40 p. 390 sq.
+
+C. Caesius Eutychion immunis cannophorus Ostiensis Ann. Inst. 40 p. 390 n. 3.
+
+Q. Domitius Aterianus pater et Domitia Civitas mater signum Attis cannophoris Ostiensibus dederunt (Ann. Inst. 40 p. 391 n. 6), qui titulus docet cannophoris quoque praefuisse patrem et matrem.
+
+Tum commemoratur cernophorarum ([GREEK] = patera) munus, quod in sacris Corybanteis a viris expletum est, in tit. C. I. L. 2, 179 Hispaniensi, quo functa est Flavia Tyche, et in tit. C. I. L. 10, 1803, quem posuit pater Heriae Victorinae cernophorae filiae dulcissimae (cf. Mommsenum ad C. I. L. 1 p. 391).
+
+Sequuntur hymnologi, quos Graeca lingua usos deorum laudes cum iactantia et ostentatione decantasse dicit 1. Firm. Maternus math. 3, 6. illi quidem in classes divisi erant, quod manifestum est ex titulo anno proximo allato (bulletino dell' i. d. c. a. di Roma a. 1884 p. 154 sq.), quem Amerimnus libertus Ti. Claudio Veloci hymnologo primo Matris deum Idaeae et Attinis publico dedicavit. eodem modo diversae classes fuerunt cymbalistriarum et tympanistriarum, quae musicam curaverunt in sacris:
+
+Aelia Recepta tympanistria Matris deum Magnae Idaeae C. I. L. 6, 2264.
+
+Trebulana Iustina tympanistria C. I. L. 9, 1542.
+
+Concordia Col. liberta Ianuaria cymbalistria loco secundo C. I. L. 9, 1538.
+
+Secundilla cymbalistria C. I. L. 5, 519.
+
+Ex tibicinibus autem unus tantum nobis occurrit in titulis tauroboliacis Lugdunensibus (Boiss. p. 31. 33. 36) Flavius Restitutus aeque atque unus haruspex publicus primarius: Flavius Liberalis C. I. L. 9, 1540 et duo apparatores Vireius Hermetio in tit. tauroboliaco Lugdunensi (Boiss. p. 36) et C. Atilius Bassi sacerdotis libertus Felix (ann. inst 40 p. 375). num vero ille mysticus* Publicius, quem nominat titulus ephem. epigr. 3, 2, ad collegium sacerdotum Matris Magnae pertineat, aut tantummodo unus ex iis sit, qui sacris initiati erant, dubium est.
+
+*) [GREEK], qui nominantur C. I. G. 6206 certe sacris initiati erant et verba [GREEK] et [GREEK] C. I. L. 6, 509 et C. I. G. 6012 c spectant ad sacra tauroboliaca.
+
+Sed infimum habuerunt gradum aeditui C. Publicius Hermes C. I. L. 5, 519 et Cosmus Orelli 2984, porro apparitor Caius Ianuarius Orelli 1896 et Acca L. f. Prima ministra Matris Magnae C. I. L. 9, 3146, quae Matrem refecit Magnam et inauravit et Attini comam inauravit et Bellonam refecit.
+
+Denique restat ut nonnulla dicam de cultoribus religiosisque. hi quidem non sacerdotes fuerunt, sed quasi sodales deorum* cultui consuluerunt. collegia enim a cultoribus instituta esse, quibus magistri praeerant, cognoscimus tit. C. I. L. 5, 494, quem Matri deum et Navisalviae Q. Nunnius Telephus magister collegii cultorum eius erexit. a quibus non secernendi sunt religiosi, qui una cum dendrophoris appellantur C. I. L. 8, 8457. nomina autem extant haec:
+
+*) Exempli gratia in tit. C. I. L. 10, 3764 cultores Iovis optimi maximi s...? Hortensenses commemorantur.
+
+L. Vettius Syntrophus religiosus a Matre capiliatus (cf. Arnob. 5, 7, 16) C. I. L. 6, 2262.
+
+Sextus Annius Celer religiosus de Capitolio C. I. L. 6, 2263.
+
+C. Iulius Epaenitus C. I. L. 9, 734.*
+
+*) Num tit. C. I. L. 10, 1894, quo ager religiosorum nominatur, ad M. M. religiosos referendus sit, in dubium vocatur.
+
+huc spectant etiam sodales ballatores ([GREEK]) Cybelae C. I. L. 6, 2265.
+
+Cultu vero longe lateque divulgato opus erat eum ab uno collegio administrari; et quamquam verisimile est primum pontifices ei praefuisse atque ad eos de rebus sacris Matris Magnae (cf. Liv. 29, 8. 19-21. 31, 12 38, 44) esse relatum, tamen circa Tiberii aetatem 15 viris imperatum est, ut providerent cultui peregrino.* sacerdotes autem ab iis occabo et corona induebantur (Boiss. p. 24) atque in tit. C. I. L. 10, 3698, quo Cumis in locum Restituti sacerdotis mortui a decurionibus L. Secundus sacerdos fit, tradita est nobis epistula, qua 15 viri haec illis rescribunt:
+
 ...
