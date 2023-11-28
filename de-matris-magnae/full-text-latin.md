@@ -910,4 +910,162 @@ Nunc veniamus ad titulum Lugdunensem (Boiss. inscr. d. L. p. 24), quem etsi mult
 
 *) Sic explicandae etiam sunt locutiones vires condere (Orelli 2332) et vires consacrare Wilmanns ex. 124. Gruter 30, 5.
 
+Deinde titulus C. I. L. 6, 508 dignus est de quo disputemus: Potentiss(imis) diis [Matri deum Magnae et At]ti Menotyranno... Serapias h(onesta) f(emina) sacr(ata) deum Matris et Proserpinae. taurobolium criobol(ium) caerno perceptum per Fl. Antonium Eustochium sac(erdotem) Phryg(ium) Max(imum) praesentib(us) et tradentib(us) c(larissimis) v(iris) ex ampliss(imo) et sanctiss(imo) coll(egio) 15 vir(um) s(acris) f(aciundis) die 12 Kal. Maias Cerealibus d(ominis) n(ostris) Constantino Max(imo) Aug. 5 et Licinio Iun(iore) Caes(are) cos. (cf. p. 23). ac primum quidem cognoscimus Serapiam non ipsam taurobolium accepisse, sed sanguinem caerno perceptum esse a sacerdote maximo; tum adnotandum est 15 viros non solum afuisse, sed etiam tradidisse taurobolium crioboliumque (cf. C. I. L. 9, 1538.* 1540-42). feminae igitur nobiles labores taurobolii non suscepisse videntur.
+
+*) Cf. p. 19. mira sunt verba vv. 11-13: haec (i. e. Concordia Coloniae lib. Ianuaria cymbalistria loco secundo) iussu Matris deum in ara taurobolica duodena cum vitula crem (ata?).
+
+Iam vero quaerendum est, quo tempore taurobolia consummata sint quotque annos valuerint. haud dubie titulis Lugdunensibus ostenditur ea aut per quattuor dies (Boiss. p. 28. 36) aut per tres (Boiss. p. 33) peracta esse; attamen cum in ceteris qui extant titulis nusquam haec temporis spatia reperiantur atque ex nonnullis (Gruter 30, 1. 4. 5. Wilmanns ex. 124. Or. 2331) luculentissime appareat uno die permulta taurobolia facta esse, conicere licet cum tauroboliis in illa colonia alia mysteria* fuisse coniuncta. quod autem attinet ad alterum satis confirmatur et a scriptoribus (p. 54) et titulis (C. I. L. 6, 504. 514. Eph. epigr. 3, 2, quo cum Mommseno consentio. C. I. L. 6, 510. 736) taurobolium viguisse aut per 20 annos aut in aeternum.
+
+*) Ad ea mysteria referenda esse existimo illa [GREEK] C. I. G. 6012 c (Kaibel epigr. gr. 823) et mysteria, quae una cum mystis affert tit. C. I. G. 6206.
+
+Denique ii enumerandi sunt qui aut pro aliis _a._ aut pro se _b._ taurobolia fecerunt:
+
+a\.
+
+L. Aemilius Carpus Boiss. p. 24 (a. 160 p. Chr.).
+
+Q. Aquius Anionianus Boiss. p. 28 (a. 184).
+
+dendrophori Lug(u)duni consistentes Boiss. p. 31 (a. 190).
+
+Sextus Publicius et... anus Herzog G. Narb. 407.
+
+Aufustia Alexandria et Sergia Parthenope Boiss. p. 33 (a. 194).
+
+Septicia Valeriana et Optatia Spora Boiss. p. 36 (a. 197).
+
+C. Batonius Herzog G. N. 7 (a. 199).
+
+Petronius Marcellus C. I. L. 9, 3014 (3015). cf. p. 19. sq.
+
+Publicius Valerius Fortunatus Thalamus Ephem. epigr. 3, 15 (a. 238).
+
+Basilicus et Mnesius C. I. L. 8, 8203. cf. p. 19.
+
+Iulia Clementiana Orelli 2331 (a. 241).
+
+Viator Wilmanns 124 (a. 241).
+
+C. Iulius Secundus Wilmanns 124 (a. 241).
+
+ordo Lactoratum sacerdotibus duobus curantibus Gruter 29, 14. 15 (a. 241).
+
+L. Dagidius Marius et Verullia Martina et Verullia Maria Orelli 2332 (a. 245).
+
+Tiberius Flavius Marcellinus et Valeria Decumilla Herzog n. 451.
+
+Attius Herzog n. 452.
+
+respublica Lactoratensis Gruter 31, 2; cf. etiam Visconti. ann. inst. 40 p. 399 et Gruter. 31, 5.
+
+b\.
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. A. 3, 173 (a. 387).
+
+Iulia Valentina et Hycia Gruter 30, 4 (a. 176).
+
+Aelia Nice, Severa, Auf. Prima Gruter 30, 4 (a. 176).
+
+Aurelia Oppida Gruter 31, 3 (a. 176).
+
+Munatia Reddita C. I. L. 10, 4726 (a. 186).
+
+Concordia Ianuaria C. I. L. 9, 1538 (a. 225).
+
+Mummeia Atticilla C. I. L. 9, 1539.
+
+L. Sontius Pineius Iustinianus C. I. L. 9, 1540. cf. p. 19.
+
+Terentia Flaviana C. I. L. 9, 1541. cf. p. 19.
+
+Trebulana Iustina C. I. L. 9, 1542. cf. p. 19.
+
+Helvia Stephanis C. I. L. 10, 6075 (a. 241).
+
+Iunia Domitia, Pom. Flora, Servilia Modesta Gruter 29, 13 (a. 241).
+
+Valeria Gemina, Verin. Severa Gruter 30, 1 (a. 241).
+
+Severus, Iulia Nice, Marciana, Aprilis et Saturnius, Valentina et Val. Flora Gruter 30, 5 (a. 241).
+
+L. Cornelius Scipio Orfitus V. C. C. I. L. 6, 505. 506 (a. 295).
+
+Iuilus Italicus V. C. C. I. L. 6, 497 (a. 305).
+
+C. Magius Donatus Severianus V. C. C. I. L. 6, 507 (a. 313).
+
+Serapias H. F. C. I. L. 6, 508 (a. 319).
+
+Alfenius Ceionius Iulianus Kamenius V. C. C. I. L. 6, 1675 (a. 333). Bull. inst. 1884 p. 56 sq. (a. 385) cf. p. 26 sq.
+
+Antoninus V. C. C. I. L. 6, 498 (a. 350).
+
+Petronius Apollodorus V. C. C. I. L. 6, 509 (a. 370).
+
+Clodius Hermogenianus V. C. C. I. L. 6, 499 (a. 374).
+
+Ulpius Egnatius Faventinus V. C. C. I. L. 6, 504 (a. 376).
+
+Sextilius Agesilaus Aedesius V. C. C. I. L. 6, 510 (a. 376).
+
+Rufius Caeionius V. C. C. I. L. 6, 511 (a. 377).
+
+Q. Clodius Flavianus V. C. C. I. L. 6, 501 (a. 383.)
+
+...V. C. F. C. I. L. 6, 502 (a. 383).
+
+Vettius Agorius Praetextatus V. C. C. I. L. 6, 1778. 1779 (a. 387).
+
+Fabia Agonia Paulina C. F. C. I. L. 6, 1780.
+
+Caeionius Rufius Volusianus V. C. C. I. L. 6, 512 (a. 390).
+
+L. Ragonius Venustus V. C. C. I. L. 6, 503 (a. 390).
+
+Pompeius Rusonianus cos. Visconti monum. Gabini 1 p. 181.
+
+Sabidia Cornelia C. I. L. 10, 4829.
+
+L. Pacilius C. I. L. 9, 6099.
+
+Billia Veneria Boiss. p. 38.
+
+Sempronia Eutygia Orelli 2323.
+
+Aemilia Serapias Orelli 2326.
+
+Narbonenses Orelli 2327.
+
+L. Decimius Pacatus et Coelia Secundina Herzog n. 393.
+
+dendrophori Valentini Herzog n. 414.
+
+Liguria Thymele Gruter 29, 8.
+
+Valeria Marciana, Valeria Carmosne, Cassius Paternus Gruter 29, 10.
+
+Pomp. Philumene, Q. Prima Gruter 29, 11.
+
+Axia Paulina Gruter 21, 4.
+
+Valeria Avita Eph. epigr. 3, 2.
+
+# Conspectus
+
+locorum, in quibus ædem Matris Magnæ fuisse scriptores et tituli certiores nos faciunt.
+
+## Asia minor
+
+...
+
+# Indices.
+
+_C. J. G._ = corpus inscriptionum graecarum. _C. J. A._ = corpus inscriptionum atticarum. _L.-W._ = Lebas-Waddington voyage archéolog. en Grèce et en Asie mineure t. 3. _M. J. A._ = mitteilungen des deutschen archäol. instituts zu Athen. _B. C. H._ = bulletin de correspondance hellénique. _A. E. M. Oe._ archäologisch-epigraphische mitteilungen aus Östreich. _C. J. L._ = corpus inscriptionum latinarum. _C. J. Rh._ = Brambach corpus inscriptionum Rhenanarum. _J. R. N._ = Mommsen inscriptiones regni Neapolitani. _Gr._ = Gruter inscriptiones antiquae totius orbis Romani voll. 2. 1707. _Or._ = Orelli inscript. latinarum select. amplissima collectio voll. 2. 1828. _H._ = Henzen inscr. lat. select. amplissima collectio vol. 3. 1856. _J. L._ = Boissieu inscriptions de Lyon. _N. Sc._ = notizie degli scavi. _D._ = Dittenberger sylloge inscript. graec. _W._ = Wilmanns exempla. _A. J. R._ = annali dell' instituto di corrispond. arch. di Roma. _B. J. R._ = bulletino dell' instituto di corr. a. di Roma. _E. E._ = ephemeris epigraphica. _G. N._ = Herzog Gallia Narbonensis. _C. J. H._ = inscriptiones confoederationis Helveticae latinae ed. Mommsen. _J. P._ = B. Latyschew inscr. antiquae orae septentrionalis Ponti Euxini etc. 1885 no. 1807.
+
+Tituli ita compositi sunt ut praecedant ii qui reperti sunt in Italia, sequantur reperti in Gallia, Hispania, Britannia, Germania, in provinciis Europae graecis et in Asia, in Africa.
+
+a\. Italia: _C. J. G._ 6012 b (= C. J. L. 6, 509). 6012 c. 6206. _C. J. L._ 6, 488-513. 736. 797. 846. 1675. 1778-80. 2183. 2257-2265. 3702. 9118. 10098. _E. E._ 4, 748. _B. J. R._ 1884 p. 154. _N. Sc._ 1877 p. 244 (Romae rep.). _Or._ 985. 1602. 2449. 2984 (= J. R. N. 6865). (Romae ? rep.). _H._ 5962. 7200. _A. J. R._ 40 p. 367 sqq. 41 p. 225. 244 (Ostiae rep.). _B. J. R._ 1884 p. 56 sqq. (in palud. Pomptinis rep.). _C. J. L._ 10, 24 (Locris rep.). 1406 (Herculanei rep.). 1587. 1596 (Neapoli rep.). 3698 (prope castellum Baianum rep.). C. J. G. 5856 (prope Baias). C. J. L. 3699. 3700 (Cumis rep.). 3764 (Carvignani rep.). 3809. 3810 (Capuae rep.). 4635 (inter Cales vicumque Palatium). 4726 (Carinotae rep.). 4829 (Praesentiani rep.). 4844 (Venafri rep.). 6074. 6075 (Caietae rep.). 6423 (Circeis rep.). 6557 (Velitris rep.). _Visconti_ monumenti Gabini 1797 p. 181 (Grabiis rep.). _W._ 2088 (Faleriis rep.). _C. J. L._ 9, 424 (Venusiae rep.). 734 (Larini rep.). 981 (Compsae rep.). 1100 (Mirabellae rep.). 1153 (Aeclaui rep.). 1538-42 (Beneventi rep.). _Or._ 2326 (Beneventi ? rep.). _C. J. L._ 9, 2480 (Saepini rep.). 3014. 3015 (Teate rep.). 3146. 3147 (Pentimae rep.). 5061 (Interamniae rep.). 5848 (Auximi rep.). 6099 (Brundisii rep.).
+
 ...
