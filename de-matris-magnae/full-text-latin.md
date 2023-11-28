@@ -305,7 +305,7 @@ _Tit. C. I. L. 6, 504 et 510_, quorum unum Ulpius Egnatius Faventinus V. C. taur
 
 Anno vero post exarati sunt:
 
-Tit. _C. I. L. 6, 511_ metricus Matri deum Magnae Idaeae et Attidi Menotyranno a Sabino IIII Id. Mart. (d. 12 m. Martii) et tit. _C. I. L. 6, 500_ iisdem deis a Caelio Hilariano V. C. 3 Id. Maias (d. 13 m. Maii).
+Tit. _C. I. L. 6, 511_ metricus Matri deum Magnae Idaeae et Attidi Menotyranno a Sabino 4 Id. Mart. (d. 12 m. Martii) et tit. _C. I. L. 6, 500_ iisdem deis a Caelio Hilariano V. C. 3 Id. Maias (d. 13 m. Maii).
 
 Sequitur tit. _C. I. L. 6, 1780_ Fabiae Aconiae Paulinae clarissimae feminae, filiae Aconii Catullini V. C., uxori Vettii Praetextati V. C., quae multis deorum dearumque sacris initiata erat, tauroboliatae positus; cum vero munus praefecturae urbis, quo coniunx eius a. 384 functus est (cod. Theod. 6, 5, 2. cod. Iustin. 1, 54, 5), in titulo coramemoretur idemque consul designatus appelletur, quo facto vita excessit anno eodem vel sequenti* titulum nostrum non ante a. 384 erectum esse constat.
 
@@ -321,7 +321,7 @@ Tum vero tit. _C. I. L. 6, 1778_ Vettio Agorio Praetextato V. C. tauroboliato Ka
 
 *) V. Keil. Philol. 23, 607. archäol. zeitung 1863 p. 74. arch. anzeiger 1867. Maurer de aris Graecorum pluribus deis in commune positis. Darmstadii 1885 p. 101. Kaibel epigr. gr. 822.
 
-Restant duo tituli: _C. I. L. 6, 503_ a L. Ragonio Venusto V. C. taurobolio criobolioque percepto 10 Kal. Iun. Valentiniano Aug. IIII et Neoterio consulibus (d. 23. m. Maii a. 390) et tit. _C. I. L. 6, 512_ eodem anno et die a Ceionio Rufio Volusiano V. C. iterato annis 20 expletis taurobolio dedicatus.
+Restant duo tituli: _C. I. L. 6, 503_ a L. Ragonio Venusto V. C. taurobolio criobolioque percepto 10 Kal. Iun. Valentiniano Aug. 4 et Neoterio consulibus (d. 23. m. Maii a. 390) et tit. _C. I. L. 6, 512_ eodem anno et die a Ceionio Rufio Volusiano V. C. iterato annis 20 expletis taurobolio dedicatus.
 
 Quamquam nullus titulus ad posteriorem aetatem pertinere videtur,* tamen cultum Matris Magnae ceterorumque deorum orientalium* aliquanto post viguisse scriptis patrum ecclesiasticorum Ambrosii (cf. Migne patrol. lat. 16 p. 980) et Augustini de civitate dei satis confimiatur (2, 4).
 
