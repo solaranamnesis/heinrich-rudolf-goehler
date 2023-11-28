@@ -735,4 +735,96 @@ huc spectant etiam sodales ballatores ([GREEK]) Cybelae C. I. L. 6, 2265.
 
 Cultu vero longe lateque divulgato opus erat eum ab uno collegio administrari; et quamquam verisimile est primum pontifices ei praefuisse atque ad eos de rebus sacris Matris Magnae (cf. Liv. 29, 8. 19-21. 31, 12 38, 44) esse relatum, tamen circa Tiberii aetatem 15 viris imperatum est, ut providerent cultui peregrino.* sacerdotes autem ab iis occabo et corona induebantur (Boiss. p. 24) atque in tit. C. I. L. 10, 3698, quo Cumis in locum Restituti sacerdotis mortui a decurionibus L. Secundus sacerdos fit, tradita est nobis epistula, qua 15 viri haec illis rescribunt:
 
+*) De 15 viris v. Marquardt p. 365 sqq.
+
+cum ex epistula vestra cognoverimus creasse vos sacerdotem Matris deum Liciniura Secundum in locum Claudi Restituti defuncti!, secundum voluntatem vestra[m] permisimus ei occabo et corona dum taxat intra fines coloniae vestrae uti.
+
+munus autem quindecimvirale posterioribus imperatorum temporibus ad summam pervenit auctoritatem atque viri clarissimi id obierunt:
+
+Iulius Italicus V. C. C. I. L. 6, 497.
+
+Antoninus V. C. C. I. L. 6, 498.
+
+Clodius Hermogenianus V. C. C. I. L. 6, 499.
+
+Q. Clodius Flavianus V. C. C. I. L. 6, 501.
+
+Petronius Apollodorus V. C. C. I. L. 6, 509.
+
+Vettius Agorius Praetextatus V. C. C. I. L. 6, 1778. 1779.
+
+Alfenius Ceionius Iulianus Kamenius V. C. Bulletino dell' i. d. c. a. d. R. 1884 p. 56 sqq.
+
+Pompeius Rusonianus consul Visconti monum. Gabini p. 181.
+
+15 viri nominibus omissis Boiss. p. 24. C. I. L. 6, 508. 10, 3698. 3699.
+
+attamen postremis paganitatis temporibus ultimum arbitrium fuisse apud principem liquet, praesertim cum libris Sibyllinis, quorum mentionem faciunt quarto p. Chr. saeculo Symmachus epp. 4, 34, 3,* Claudianus d. b. g. 230, Prudentius apoth. 439, deletis etiam 15 virorum auctoritas periret.
+
+*) Et Marciorum quidom vatum divinatio caducis corticibus inculcata est, monitus Cumanos lintea texta sumpserunt.
+
+Nunc vero disputandum est de sacerdotibus 15 viralibus, quibus hoc nomen non propterea inditum esse, quia a 15 viris creati aut sanciti sunt, certe concludi potest ex tit. C. I. L. 10, 3698. itaque arbitror constituta esse in oppidis collegia sacerdotum virorum ac feminarum, quae collegio 15 virorum sacris faciundis similia cultum Matris Magnae suo loco curaverunt. novimus autem haec nomina:
+
+L. Pompeius Felicissimus sacerdos M. deum 15 viralis in vico Novanensi C. I. L. 10, 3764.
+
+Munatia Reddita C. I. L. 10, 4726.
+
+Iunius Titus sac. 15 vir. Arausensis Orelli 2332.
+
+Castricius Zosimus sac. 15 vir. civitatis Albensis Orelli 2332.
+
+Blattius Paternus sac. 15 vir. civitatis Vocensis Orelli 2332.
+
+Terentia Flaviana (Elisuiana) sac. 15 vir. secundo loco C. I. L. 9, 1538. 1541; videmus igitur eas quoque sacerdotes in classes distributas esse.
+
+Servilia Varia C. I. L. 9, 1538. 1542, quo v. 9 etiam legi potest 15 vir. pro lectione prima.
+
+sacerdos 15 vir. nomine deleto C. I. L. 9, 981.
+
+Sacerdotes vero non perpetuos fuisse ostenditur tit. C. I. G. 3508 (cf. p. 14), ubi verbis expressis Ulpia Marcella [GREEK] nominatur, et tit. Lugdunensi (Boiss. p. 24), quo sacerdoti Q. Sammio Secundo sanctissimus ordo huius coloniae perpetuitatem sacerdotii decernit. attamen per multos annos munus expleverunt; legitur enim apud Orellium 2984 Antiochum iam 12 annos eodem loco sacerdotem Matris Magnae fuisse, unde efficitur ut diversis locis sacerdotii munere fungi liceat.
+
+Ad extremum notandum est sacerdotes Matris deum stipem a populo exigere lege a Metello lata cf. Ovid. f. 4, 350 sq.:
+
+"dic," inquam, "parva cur stipe quaerat opes?"  "contulit aes populus, de quo delubra Metellus
+
+fecit," ait. "dandae mos stipis inde manet";* ad quem morem pertinere videntur ea quae legimus ap. Or.-Henzenum 2327 = 6033: Matri deum taurobolium indictum iussu ipsius et stipe conlata celebrarunt Narbonenses.
+
+*) Cic. de legg. 2, 9 (cf. etiam 2, 16): praeter Idaeae Matris famulos eosque iustis diebus nequis stipem cogito.
+
+Quoniam vero non nisi sacerdotum muneribus cognitis explanari potest, quomodo dies festi celebrati sint, nunc videamus, quales fuerint, quibus diebus acti sint quidque sacerdotibus in iis faciendum. exceptis autem diebus festis Cybeles Placianae (cf. p. 3 adn. 3 et Marquardt. Cyz. u. sein gebiet p. 95 sq.) et Attidis, quibus nomen erat [GREEK],* commemorantur [GREEK] C. I. A. 2, 470 v. 13, quibus ephebi Matri deum sacrificabant pateramque centum drachmum dedicabant, quapropter a senatu populoque coronati sunt. dicit autem Hesychius p. 333 (ed. Schmidt) haec s. v. [GREEK] (Schoemann l. l. 2. p. 528).
+
+*) Visconti ann. inst. 41 p. 227: si sa che lo smarrimento ed il ritrovamento del nume solare, in questa, come in altre simili idolatrie della natura, stabiliva due periodi di feste essenzialmente diverse, di lutto l'une, l'altre di allegrezza.
+
+Deinde sacris Romae acceptis Megalesia instituta sunt cf. fastos Praenestinos (C. I. L. 1 p. 316) ad 4 diem mensis Aprilis: ludi Matris deum Idaeae Megalensia vocantur, quod ea dea Migale appellatur. nobilium mutitationes cenarum solitae sunt frequenter fieri, quod Mater Magna ex libris Sibullinis arcessita locum mutavit cx Phrygia Romam (Ovid. 7. 4, 352 sq. Gellius 18, 2, 11. 2, 24, 2). recte profecto conclusit Mommsenus ad C. I. L. 1 p. 389, cum Ovidius f. 4, 337 sq. et menologium rusticam lavationis solius mentionem faciant, reliquos dies festos posteriore aetate inter publica Romanorum sacra receptos esse. describit autem Ovidius l. l. lavationem hisce verbis:
+
+est locus, in Tiberim qua lubricus influit Almo  et nomen magno perdit ab amne minor.  illic purpurea canus cum veste sacerdos.  Almonis dominam sacraque lavit aquis,  exululant comites furiosaque tibia flatur  et feriunt molles taurea terga manus.  Claudia praecedit laeto celeberrima voltu  credita vix tandem teste pudica dea.  ipsa sedens plaustro porta est invecta Capena;  sparguntur iunctae flore recente boves.
+
+atque ludi Megaleses paulo post (a. u. c. 560) Romae peracti sunt a die 4 m. Aprilis usque ad diem 10, intermisso die 8 Castoris et Pollucis natali, primi C. Atilio Serrano et L. Scribonio Libone aedilibus. quibus plurimas Terentii fabulas actas esse notum est (Ritschl parerga 294 sq.) atque etiam ex verbis Arnobii 7, 33. 4, 34 5, 42 conicere licet fabulam Claudiae illis diebus spectaculo fuisse.
+
+Tum vero aetate imperatoria novi dies festi tempore aequinoctii instituti sunt; legimus enim haec apud Macrobium sat. 1, 21, 10: praecipuam autem solis in his caerimoniis verti rationem hinc etiam potest colligi, quod ritu eorum catabasi finita simulationeque luctus peracta celebratur laetitiae exordium a. d. 8 Kal. Apriles; quem diem Hilaria appellant, quo primum tempore sol diem longiorem nocte protendit. quas pompas in honorem Terrae ductas esse, ut pro salute agrorum et vinearum sacra ferrentur, scriptorum locis clare perspicitur.* fastos autem Philocali secutus haec sacra, de quibus Marquardt l. l. p. 355 sq. scriptorum testimoniis accuratissime compositis egit, breviter explicabo:
+
+*) Macrob. 1, 21, 8. Lucret. 2, 498 sq. August. d. civ. dei 7, 24. Lydus de mens. 3, 34. Gregor Tur. in glor. confess. c. 77 commemorat pompam Berecyntiae.
+
+IDIB. MARTIIS. CANNA INTRAT. Lydus de mens. 4, 36: [GREEK].
+
+11 KAL. APR. ARBOR INTRAT. Lydus l. l. 4, 41 [GREEK]. arbor autem violis exornata erat (Arnob. 5, 116).
+
+9 KAL. APR. SANGVEM, quo die archigallus sanguinem impurum lacertos castrando libavit.
+
+8 KAL. APR. HILARIA, quae in Palatio celebrata esse concludi potest ex Fl. Vopisco Aurel. 1; descripsit autem diem festum Herodianus 1, 10, 5 cf. p. 17 adn. 1.
+
+7 KAL. APR. REQVETIO,* quem diem, cum inter Hilariorum lasciviam et lavationis tauroboliique caerimonias positus sit, ad Matris Magnae sacra referendum esse intellexit Mommsenus, etsi nullum extat testimonium.
+
+*) Mihi dies Matris Magnae festos accuratius perquirenti valde placet Haakhii (verhdl. deutscher philologen in Stuttgart 1857 p. 156 sq.) sententia, qui censet diem festum nostrum, quem nominamus "Karneval" originem non traxisse a Saturnalibus, sed ab Hilaribus; quae sequitur dies requietionis aeque ac nostrum "Karneval" dies, cui nomen est "Aschermittwoch." quod si nobis persuasum est iam non opus est accipere Saturnalia propter diem festum Christianorum (Weihnacht) non exeunte anno, sed vere celebrata esse.
+
+6 KAL. APR. LAVATIO; lavacrum in flumine Almone sub cura 15 virorum factum est, ad quem lapis sacer argenteo capite femineo indutus (Prud. [GREEK]. 10, 153. Zoega Bassirilievi 1, 89) pompa ducebatur. denique sequitur
+
+5 KAL. APR. INITIVM CAIANI. Mommsenus (C. I. L. 1. p. 390) exposuit in circo Gaiano trans Tiberim in Vaticano sito, quod nomen a Caligula accepit (Dio C. 59, 14), tauroboliaca sacra urbana peracta esse et quod in curioso et notitia (reg. 14 cf. p. 62) Gaianum et Frigianum (i. e. sacrarium Matris Phrygiae) coniungerentur et quod sacrorum tauroboliacorum in provinciis ad urbis exemplum institutorum locus item appellari soleret Vaticanus. quamquam capite 5 ostendam alteram causam vix stare posse, tamen sententia ipsa mihi probatur.
+
+Ac de festis quidem diebus satis arbitror dictum.
+
+# Caput 4.
+
+De tauroboliis, crioboliis aemoboliisque.
+
 ...
