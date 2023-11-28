@@ -827,4 +827,87 @@ Ac de festis quidem diebus satis arbitror dictum.
 
 De tauroboliis, crioboliis aemoboliisque.
 
+Quamquam permulti nobis extant tituli tauroboliaci atque a Prudentio aliisque haec sacra discimus, tamen nonnullae restant difficultates, quas investigandas atque quantum possum dissolvendas hoc capite mihi proposui.* ac primum quidem de voce, quid significet quamque originem habeat, breviter dicam. [GREEK] certe derivandum est a voce [GREEK] et [GREEK] ita ut [GREEK] eum significet, qui taurum mactat; cum vero hoc fiat a sacerdote, is quoque taurobolus nominatur cf. carmeu cod. Par. 8084 v. 57 (Herm. 4 p. 50 sq.):
+
+*) Tractaverunt, ut ceteros omittam, hanc rom v. Dalen dissert. 9 antiquitatibus quin et marmoribus inservientium 1 Amstelod. 1702. Fr. Kautz de taurobolio Lips. 1738. Boissieu inscr. de Lyon p. 20 sq. Burckhardt das zeitalter Konstantins d. gr. 2 p. 193 sq.
+
+quis tibi taurobolus vestem mutare suasit?
+
+[GREEK] igitur id est quod pertinet ad taurobolum, cuius munus gravissimum est sacrificare. num vero primum s. v. taurobolii locum, quo sacrum peractum est, Romani intellexerint, dubito neque comparari potest cum voce nostra cognomen Dianae ([GREEK]), cuius aedes ap. Strab. 14, 639 [GREEK] et sacra [GREEK] (Hesych. s. v. [GREEK]) appellantur. quibus autem temporibus illa sacra Romani acceperint, non satis constat; attamen vix quisquam negabit quin non nisi aetate imperatoria, fortasse iam primo p. Chr. saeculo facta sint.* sed tantum abest ut pagani baptismate Christianorum contempto simile quid invenerint, ut contra eos quoque illa aetate, qua summae libidines summaeque religiones nobis occurrunt atque homines rebus mysticis valde studebant, desiderasse censeam aliquid, quo novum quasi existeret corpus ipsique renascerentur.*
+
+*) Antiquissimus tit. taurob. Matris deum est Lugdunensis a. 160 p. Chr. erectum; attamen quoniam in illo certe non primum taurobolium (cf. infra) commemoratur, illa Romae aliquanto anto percepta esse videntur.
+
+*) Burckhardt p. 223 adn. 1 citat Arnob. l. 2, 62: Etruria libris in Acheronticis pollicetur certorum animalium sanguine numinibus certis dato divinas animas fieri et ab legibus mortalitatis educi. --renatus in aeternum legitur C. I. L. 6, 510. 736. vires quoque tauri aeternae nominantur Or. 2323.
+
+Tres autem novimus testes sacrorum taurobolii, quorum verba expressa afferre mihi opus esse videtur. ac Firmicus quidem Maternus haec dicit (de err. pr. rel. 27, 8): neminem apud idola profusus sanguis iuverit. et ne cruor pecudum miseros homines aut decipiat aut perdat, polluit sanguis iste, non redimit et par varios casus homines premit in mortem. miseri sunt qui profusione sacrilegi sanguinis cruentantur. tauribolium vel criobolium scelerata te sanguinis labe perfundit. tum vero Prudentius accuratissime nos de sacris illis certiores fecit in "hymno de martyre Romano" ([GREEK]. 10, 1011 sq.):
+
+summus sacerdos nempe sub terram scrobe  
+acta in profundum consecrandus mergitur,  
+mire infulatus, festa vittis tempora  
+nectens, corona tum repexus aurea,  
+cinctu gabino sericam fultus togam.
+
+tabulis superne strata texunt pulpita  
+rimosa rari pegmatis compagibus,  
+scindunt subinde vel terebrant aream  
+crebroque lignum perforaut acumine,  
+pateat minutis ut frequens hiatibus.
+
+huc taurus ingens fronte torva et hispida  
+sertis revinctus aut per armos floreis  
+aut impeditus cornibus deducitur;  
+nec non et auro frons coruscat hostiae,  
+saetasque fulgor bractealis inficit.
+
+hic ut statuta est immolanda bellua  
+pectus sacrato dividunt venabulo.  
+eructat amplum vulnus undam sanguinis  
+ferventis inque texta pontis subditi  
+fundit vaporum flumen et late aestuat.
+
+tum per frequentes mille rimarum vias  
+illapsus imber tabidum rorem impluit  
+defossus intus, quem sacerdos excipit  
+guttas ad omnes turpe subiectans caput  
+et veste et omni putrefactus corpore.
+
+quin os supinat, obvias offert genas,  
+supponit aures, labra, nares obicit  
+oculos et ipsos perluit liquoribus,  
+nec iam palato parcit et linguam rigat,  
+donec cruorem totus atrum combibat.
+
+postquam cadaver, sanguine egesto rigens,  
+compage ab illa flamines retraxerint,  
+procedit inde pontifex visu horridus,  
+ostentat udum verticem, barbam gravem,  
+vittas madentes atque amictus ebrios.
+
+hunc inquinatum talibus contagiis,  
+tabo recentis sordidum piaculi  
+omnes salutant atque adorant eminus,  
+vilis quod illum sanguis et bos mortuus  
+foedis latentem sub cavernis laverint.
+
+tertius denique locus inest in carmine cod. Parisini 8084 v. 57 sq.
+
+quis tibi taurobolus vestem mutare suasit,  
+inflatus dives subito mendicus ut esses?  
+obsitus et pannis, modica stipe factus epaeta,  
+sub terram missus, pollutus sanguine tauri,  
+sordidus, infectus, vestes servare cruentas,  
+vivere cum speras viginti mundus in annis?
+
+Antiquissimo autem titulo, quo taurobolium commemoratur, C. I. L. 10, 1596 ecitium* taurobolium Veneris Caelestae ! et pantelium ab Herennia, Fortunata imperio* deae per Ti. Claudium Felicem sacerdotem iteratur; ex quo concludendum esse puto, cum titulus L. Iulio Urso Serviano cos. 3 Non. Oct. (134 p. Chr.) exaratus sit, taurobolia ab initio non modo Matri Magnae, sed etiam aliis numinibus facta esse, tum vero postquam propriam acceperunt formam non nisi in Matris Magnae sacris adhibita esse; neque enim quicquam obstat, quominus tantum cogitemus de sacrificio nullo baptismate adiecto.
+
+*) Haec vox quid sibi velit ignoro; Iablonskii autem sententia, qui censet ecitium esse scriptum pro Aegyptium, mihi non probatur.
+
+*) Taurobolia facta sunt ex imperio Herzog G. Narb., n. 7, ex iussu eph. epigr. 3, 15, ex voto Boiss. p. 33. 36. Herzog n. 461, ex vaticinatione archigalli Boiss. p. 28. 31. C. I. L. 8, 8203. iussu C. I. L. 9, 1538.
+
+Nunc veniamus ad titulum Lugdunensem (Boiss. inscr. d. L. p. 24), quem etsi multi viri docti iam prius, denique is qui edidit inscriptiones Lugduni accuratissime explicare studuerunt, tamen illos recte eum interpretatos esse nego. arae autem insculpta sunt haec: (in columna media) taurobolio Matris deum Magnae Idaeae, quod factum est ex imperio* Matris divae deum pro salute imperatoris Caesaris T. Aeli Hadriani Antonini Aug. Pii Patris Patriae liberorumque eius et status coloniae Lugudunensis L. Aemilius Carpus [...] vir. Aug. item dendrophorus (sequitur bucranium). vires excepit et a Vaticano transtulit ara[m] et bucranium suo inpendio consacravit* sacerdote Q. Sammio Secundo ab 15 viris occabo et corona exornato, cui sanctissimus ordo Lugudunensis perpetuitatem sacerdoti decrevit Appio Annio Atilio Bradua T. Clodio Vibio Varo cos. (160 p. Chr.). L. d. d. d. (in columna dextera): cuius mesonyctium factum est 5 Id. Dec. in prima autem parte nihil est, quod praebet difficultates; quaeritur tantummodo, quomodo intellegenda sint verba: vires excepit et a Vaticano transtulit. vires excipere nihil aliud significare potest nisi tauroboliari; nam si verba scriptorum supra a me laudatorum inspexerimus, cognoscemus sanguine* tauri renasci tauroboliatum. quod si nobis probatur, elucet quid sibi velint verba: a Vaticano transtulit. Carpus enim Romae tauroboliatus pro salute imperatoris liberorumque eius et status coloniae taurobolium transtulit Lugdunum. unde apparet Vaticanum non situm esse in illa colonia. quam sententiam protulerunt Boissieu et Mommsenus C. I. L. 1 p. 390; viri enim docti, qui de hoc titulo egerunt hanc partem non bene perspexisse videntur, cura cur in hoc titulo tauroboliaco, qui multum distat a ceteris, sacerdos Q. Sammius Secundus a 15 viris occabo et corona ornatus eique sacerdotii perpetuitas decreta esset, explanare non studerent. attamen si conicimus Sammio Secundo auctore Carpum ex imperio Matris deum Romam missum ibidem taurobolium accepisse, intellegimus quamobrem illum et 15 viri, qui tauroboliis praefuerunt, et ordo Lugdunensis tantis honoribus affecerint. ceterum restat ut de voce difficillima "mesonyctium" verba faciam; cogitandum est aut de illo tempore, quo dea imperaverat, ut taurobolium fieret, aut de caerimonia nocturna quoniam vero primum vix inesse potest in hac voce, alterum rectum esse videtur; quamquam sane mirum est, quod apud Prudentium nihil legitur de tempore insolito.
+
+*) Carpum non bucranium ex Vaticano transtulisso, sed aram cum bucranio exsculpto consecrasse iam bene perspexit Kautz l. l. p. 46; atque recte coniecisse videtur Kaibel epigr. gr. 823 (C. I. A. 3, 172) [GREEK] in hoc titulo taurob. Atheniensi aeque atque in altero C. I. A. 3, 173 [GREEK] significare bucrania.
+
+*) Sic explicandae etiam sunt locutiones vires condere (Orelli 2332) et vires consacrare Wilmanns ex. 124. Gruter 30, 5.
+
 ...
