@@ -1068,4 +1068,24 @@ Tituli ita compositi sunt ut praecedant ii qui reperti sunt in Italia, sequantur
 
 a\. Italia: _C. J. G._ 6012 b (= C. J. L. 6, 509). 6012 c. 6206. _C. J. L._ 6, 488-513. 736. 797. 846. 1675. 1778-80. 2183. 2257-2265. 3702. 9118. 10098. _E. E._ 4, 748. _B. J. R._ 1884 p. 154. _N. Sc._ 1877 p. 244 (Romae rep.). _Or._ 985. 1602. 2449. 2984 (= J. R. N. 6865). (Romae ? rep.). _H._ 5962. 7200. _A. J. R._ 40 p. 367 sqq. 41 p. 225. 244 (Ostiae rep.). _B. J. R._ 1884 p. 56 sqq. (in palud. Pomptinis rep.). _C. J. L._ 10, 24 (Locris rep.). 1406 (Herculanei rep.). 1587. 1596 (Neapoli rep.). 3698 (prope castellum Baianum rep.). C. J. G. 5856 (prope Baias). C. J. L. 3699. 3700 (Cumis rep.). 3764 (Carvignani rep.). 3809. 3810 (Capuae rep.). 4635 (inter Cales vicumque Palatium). 4726 (Carinotae rep.). 4829 (Praesentiani rep.). 4844 (Venafri rep.). 6074. 6075 (Caietae rep.). 6423 (Circeis rep.). 6557 (Velitris rep.). _Visconti_ monumenti Gabini 1797 p. 181 (Grabiis rep.). _W._ 2088 (Faleriis rep.). _C. J. L._ 9, 424 (Venusiae rep.). 734 (Larini rep.). 981 (Compsae rep.). 1100 (Mirabellae rep.). 1153 (Aeclaui rep.). 1538-42 (Beneventi rep.). _Or._ 2326 (Beneventi ? rep.). _C. J. L._ 9, 2480 (Saepini rep.). 3014. 3015 (Teate rep.). 3146. 3147 (Pentimae rep.). 5061 (Interamniae rep.). 5848 (Auximi rep.). 6099 (Brundisii rep.).
 
+b\. Gallia: _C. J. L._ 5, 81 (Polae rep.). 488 (Capodistriae rep.). 518-20 (Tergeste rep.). 795 a (Aquileiae rep.). 796. _C. J. G._ 6835-37 (Venetiis rep.). 3438 (Veronae rep.). 4007 (Malsesini rep.). 4400 (Brixiae rep.). 4940 (Cividate rep.). 4985 (in agro Arcensi). 5814. 5830. 5862 (Mediolani rep.). 5881 (Vedesi rep.). 6956 a (Beinasco rep.). _J. L._ p. 24. 28. 31. 33. 36. 38 (Lugduni). _Or._ 1898 (Bellici). 2321 (Turnebi). 2323 (Aug. Taurinorum). 2327 _G. N._ n. 7 (Narbone). Gr. 29, 8 (Narbone). 29, 10 (Vineiae). _Or._ 2331. _W._ 124. _Gr._ 29, 11. 13. 14. 30, 1. 4. 5. 31, 2. 3 (Lactorae). _Or._ 2332 (Deae Vocontiorum). _G. N._ n. 392. 393 (Reis Apollinaribus). 407 (Arausione). 414 (Valentiae). 451. 452 (Deae Augustae). _C. J. H._ n. 7 (Sitten).
+
+c\. Hispania. _C. J. L._ 2, 178. 179 (Olisipone). 606 (Gallistei). 805 (rep. en la aldea de Caparra). 2521 (rep. en la feligresia de Albarellos). 3706 (Magone). _E. E._ 3 n. 2 (Emeritae). n. 15 (Cordubae).
+
+d\. Brittania. _C. J. L._ 7, 618 (Carabruch).
+
+e\. Germania. _C. J. Rh._ 723 (Kreuznach). 1667 (Salmen).
+
+f\. Provinciae Europae graecae et Asia. _C. J. A._ 2, 315. 404. 421. 465. 551. 607. 3, 134-37. 172. 173. 888. 1062. _Kaibel_ epigr. gr. 44. _C. J. G._ 487 (Athenis). _C. J. G._ add. 2010 c (prope Philippos rep.). _M. J. A._ 3 (1878) p. 389 nn. 156. 158. p. 397 (cf. 4 (1879) p. 130) (Boeotia). 7 (1882) p. 132 (? Metropoli). _B. C. H._ 6 (1882) p. 500 sq. n. 22. 25 (Deli). _C. J. G._ add. 2107 b (Penticapei). 2374 (marmor Parium). add. 2465 c-f (Therae). 2860 (? Mileti). 3137 (_D._ 171). 3156. 3193. 3260. 3286. 3385-87. 3401. _B. C. H._ 3 (1879) p. 328 (Smyrnae). _L.-W._ 3, 1653 (Sardibus). _C. J. G._ 3411 (Magnesiae). _B. C. H._ 3 (1879) p. 339 (Bouldur). _A. E. M. Oe._ 7, 1883 p. 175. 176 (Bojuzuk et Eskischehr). _L.-W._ 3, 699 (Koula). _C. J. G._ 3508 (Thyatirae). 3657. 3668. _M. J. A._ 7 p. 151 (Cyzici). Lueders l. l. tab. 2 (Nicaeae). _C. J. G._ add. 3886 (Eumeniae). 3727 (Cii). 3953 d (Trapezopoli). 3993 (Iconii). 4040 (monum. Ancyranum). 4121 (in loco Bucareler rep.). _B. C. H._ 3 (1879) p. 324 n. 11 (in insula Chio rep.). Kaibel epigr. gr. 1038 (Attaliae). _C. J. L._ 3, 639 (Philippis). 763. 764 (Koestendje). 1100 (Apuli). 1101 (Albae Juliae). 1102 (Maros-Porto). 1582 (in latere turris castri Severini seu Zereven rep.). 1952 (Clissae). 1953. 1954. _A. E. M. Oe._ 8 p. 111 (Salonis). 2676 (Tragurae). 3115 (Arbae). 3471 (ad Budam rep.). 5021 (Wieting). 5194 (Celeiae vel in agro Celeiano rep.). 5195 (Celeiae). 6428 (in oppido Pegunti rep.).
+
+g\. Africa. _C. J. G._ 4695 (Canopi). _C. J. L._ 8, 1649. _E. E._ 5, 614 (Siccae Veneriae). _C. J. L._ 8, 1776 (Laribus). 2230 (Masculae). 2633 (Lambaesi). 4846 (Tipasae). 5524 (Thibili). 5707 (Sigus). 6955 (Constantinae). 7956 (Rucisade). 8203 (Mila). 8457 (in circuitu oppidi Sitifis). 8656 (Mons). 9401 (Caesareae).
+
+h\. locus incertus. _C. J. G._ 6338. _A. E. M. Oe._ 8 p. 198.
+
+# Res Sacrae.
+
+Inscriptiones graecae.
+
+## 1\. Di, deae cum templis.
+
 ...
