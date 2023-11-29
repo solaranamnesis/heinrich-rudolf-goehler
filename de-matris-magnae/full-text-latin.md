@@ -16,7 +16,7 @@ Antiquissimis iam temporibus* non modo in Lydia et Phrygia, unde cultus Matris M
 
 *) Marmor Parium v. 18 sq. Athen. 14 p. 628 B.
 
-*) Primus accuratissime hanc disputationem instituit Movers in libro suo egregio "die Phöniker" vol. 1 ; de nostro cultu cf. p. 233. 560 sq. praeterea commemorabo C ||| P. Tiele "Eshmoun et les Cabires" in "revue de l'histoire des religions" a. 2 tom. 3 p. 197 sq.
+*) Primus accuratissime hanc disputationem instituit Movers in libro suo egregio "die Phöniker" vol. 1 ; de nostro cultu cf. p. 233. 560 sq. praeterea commemorabo C --- P. Tiele "Eshmoun et les Cabires" in "revue de l'histoire des religions" a. 2 tom. 3 p. 197 sq.
 
 *) Mueller-Wieseler denkmäler alter kunst 2, 808, quo loco Cybele Astartae similis in leone sedens et tympanum attollens sole lunaque circumdata conspicitur.
 
