@@ -1227,4 +1227,511 @@ Inscriptiones graecae.
 
 2\. Sacerdotes, sacerdotia, sacra.
 
-...
+[GREEK] C. I. G. 3508. 3953.
+
+[GREEK] C. I. A. 3, 1062. cf. p. 40.
+
+[GREEK] C. I. A. 2, 622.
+
+[GREEK] C. I. A. 2, 470 v. 13.
+
+[GREEK] C. I. G. 3668 (D. 270).
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 6012 c.
+
+[GREEK] C. I. A. 2, 622.
+
+[GREEK] C. I. G. 3137 (D. 171).
+
+[GREEK] Lueders d. Dion. künstler p. 9 t. 2.
+
+[GREEK] ibidem.
+
+[GREEK] C. I. G. 3727.
+
+[GREEK] C. I. A. 2, 614 ([GREEK]). B. C. H. 7. p. 69.
+
+[GREEK] C. I. G. 3657 ([GREEK]).
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 3508.
+
+[GREEK] Lueders l. l. p. 9 tab. 2.
+
+[GREEK] C. I. G. 6206. C. I. A. 2, 614 ([GREEK]) C. I. G. 6012 c.
+
+[GREEK] C. I. G. 3193. B. C. H. 7 p.69. C. I. A. 2, 622 ([GREEK]). C. I. G. 3508 ([GREEK]).
+
+[GREEK] C. I. G. 3657.
+
+[GREEK] B. C. H. 7 p. 69.
+
+[GREEK] C. I. G. 3657.
+
+[GREEK] C. I. G. add. 2107 b. M. I. A. 7 p. 151.
+
+[GREEK] C. I. G. 3657.
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] M. I. A. 7 p. 151.
+
+[GREEK] C. I. G. 6012 b. (C. I. L. 6, 509).
+
+[GREEK] C. I. G. 6012 c.
+
+[GREEK] C. I. G. 3886.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. G. 6206 ([GREEK]).
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 6012 c.
+
+[GREEK] C. I. G. 6012 b. (C. I. L. 6, 509).
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 3193.
+
+[GREEK] C. I. A. 2, 842. [GREEK]. C. I. A. 2, 622. B. C. H. 7 p. 69 sq. Jhrbb. f. klass. phil. 121 p. 422.
+
+[GREEK] C. I. G. 6012 c.
+
+[GREEK] Kaibel l. l. 44.
+
+[GREEK] C. I. G. 3953 d. 6012 c.
+
+[GREEK] C. I. G. 3657.
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] (i. e. Athenis) [GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. A. 3, 173.
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. A. 3, 173.
+
+B\. Inscriptiones latinae.
+
+## 1\. Di, deae cum templis et delubris.
+
+Aecate C. I. L. 6, 1675. B. I. R. 1884 p. 56 sq. cf. Hecate.
+
+Aerecura C. I. L. 8, 5524.
+
+Apollo C. I. L. 8, 6955.
+
+Attis C. I. L. 6, 502. 507. 510 (deus magnus). 10098. B. I. R. 1884 p. 154. N. Sc. 1877 p. 244. A. I. R. 40 p. 399. 41 p. 225. C. I. L. 9, 1538-42. 3146. Or. 1898. C. I. L. 3, 763. Atthis C. I. L. 10, 6074. 2, 3706. templum C. I. L. 2, 3706. imago Attis A. I. R. 40 p. 390, 5. signum Attis A. I. R. 40 p. 390, 6.
+
+--- Menoturanus C. I. L. 6, 511.
+
+--- Menotyrannus C. I. L. 6, 508. 512 ? A. Menot. conservator C. I. L. 6, 500.
+
+--- invictus C. I. L. 6, 497.
+
+--- sanctus C. I. L. 6, 501.
+
+--- Phryx. C. I. L. 6, 10098.
+
+--- populi Romani C. I. L. 6, 2183. cf. p. 40.
+
+--- sanctus, genius dendrophorum C. I. L. 8, 7956.
+
+Bellona C. I. L. 9, 3146.
+
+aedes Bellonaes Pulvinesis C. I. L. 6, 490.
+
+Ceres C. I. L. 6, 1779. 1780.
+
+Cora C. I. L. 6, 1780.
+
+Cupidines Or. 1898.
+
+Cybebe C. I. L. 6, 513.
+
+Cybele C. I. L. 6, 2265. 9118. 10098.
+
+veneranda signa triodeia Cibeles C. I. L. 6, 511.
+
+Di Manes C. I. L. 6, 2259. 2261. 2262. 2265. 10, 24. 1803. H. 7200. C. I. L. 9, 2480. C. I. L. 5, 4400.
+
+Dea apud Aeginam C. I. L. 6, 1780.
+
+Dea Dindymena C. I. G. 5856.
+
+Di Asca (lonitani?) C. I. L. 3, 6428.
+
+Di deaeque C. I. L. 8, 6955.
+
+simulacrum deae argenteum C. I. G. 8, 8457.
+
+Diana triplex C. I. L. 6, 511.
+
+Di custodes C. I. L. 6, 499.
+
+Di magni C. I. L. 6, 504. 510.
+
+Di omnipotentes C. I. L. 6, 502. 503. 8, 8457.
+
+Dione C. I. L. 6, 9118.
+
+Di potentissimi C. I. L. 6, 508.
+
+Divae C. I. L. 5, 520.
+
+Fides Augusta C. I. L. 9, 5848.
+
+Gei(nia?) C. I. L. 5, 5862.
+
+Hecate C. I. L. 6, 500. 504. 511. 1780. Hecatae C. I. L. 6, 507, 510. 1779.
+
+Hercules C. I. L. 6, 1779.
+
+Iacchus C. I. L. 6, 1780.
+
+Invictus C. I. L. 6, 511 (cf. Mithras et Sol).
+
+Iuppiter Optimus Maximus C. I. L. 8, 6955.
+
+Iuppiter Optimus Maximus S(erapis?) C. I. L. 10, 3764.
+
+Isis C. I. L. 6, 504. 511. 512. 9, 6099. 5, 4007. W. 2088. Ostensis H. 5962. Regina C. I. L. 9, 1153.
+
+diva Iulia Pia Augusta C. I. L. 9, 1153.
+
+Lares Or. 2505 (cf. C. I. L. 6, 736).
+
+Liber (deus) C. I. L. 6, 500. 504. 510. 1675. 1779. 1780. B. I. R. 1884 p. 56 sq. Pater C. I. L. 6, 507. 510. Or. 2332.
+
+Manes C. I. L. 6, 9118.
+
+signum Martis A. I. R. 40 p. 374.
+
+Mater dea (cf. Prud [GREEK]. 10, 1062) Baiana C. I. L. 10, 3698.
+
+Mater deum C. I. L. 6, 489. 490. 493. 494. 502. E. E. 4, 748. C. I. L. 6, 508. 510. 1675. 2260. 2261. 10, 1406. 3698. 3699. 3764. 3809. 3810. 4829. 4844. 6074. B. I. R. 1884 p. 56 sq. C. I. L. 9, 734. 981. 1153. 3147. 5848. W. 2088. O. 1898. 2327. C. I. L. 5, 3438. 4007. 4940. 4985. 5814. 5881. Gr. 29, 8. 11. 13. 30, 1. 4. 5. 31, 4. 6. G. N. n. 7. 392. 407. W. 124. E. E. 2, 2. 15. C. I. L. 2, 178. 805. 2521. C. I. Rh. 723. 1667. C. I. L. 3, 1954. 3115. 639 (m. deorum). 8, 9401 (sanctissimum numen).
+
+imago M. D. A. I. R. 40 p. 390 n. 4.
+
+praesentia M. D. C. I. L. 6, 488.
+
+typus M. D. A. J. R. 40 p. 390 n. 4.
+
+aedes C. J. L. 3, 1954.
+
+fanum C. J. L. 5, 4985. f. et pronaum C. J. L. 5, 4007.
+
+templum C. J. L. X, 1406.
+
+campus A. J. R. 40 p. 378. 379.
+
+Mater deum Augusta J. L. p. 38. C. I. L. 8, 2230. 1776 (magna Idaea).
+
+--- Idaea B. J. R. 1884 p. 154.
+
+--- magna C. J. L. 6, 506. 508. O. 1602. H. 7200. C. J. L. 10, 6423. 9, 1100. 1538. A. J. R. 40 p. 375. 379. C. J. L. 5, 519. 520. 795 a. 796. G. N. n. 45. C. J. L. 3, 1100-1102. 1582. 3471. E. E. 5, 614.
+
+--- magna Blaudia (Steph. B. s. v. Strabo 12, 567).
+
+--- magna Idaea C. J. L. 6, 491. 496. 497. 499 (summa parens). 500 (conservatrix). 501. 502. 504. 511. 512 ?. 2183. 2257-59. 2264. 3702. 9, 1540. O. 2984 (J. R. N. 6865). 2332. C. J. L. 5, 81. 5862. J. L. p. 24. 28. G. N. n. 393. 414. C. J. L. 3, 5021 ? 8, 5524. 6955. 8656. Visconti monum. Gabini p. 134. Gr. 29, 10. dea magna Idaea C. J. L. 7, 618.
+
+--- magna Idaea Phrygia C. J. L. 7, 179.
+
+--- magna Idaea sancta C. J. L. 8, 8457.
+
+--- magna Idaea sanctissima C. J. L. 8, 4846.
+
+--- optima maxima C. J. L. 10, 4829.
+
+--- Trastiberina H. 5962.
+
+aedes M. D. M. monum. Ancyran. 6, 33.
+
+Mater magna C. J. L. 6, 488. 2262. 10, 4635. 9, 3146. 6099. C. J. H. 7. C. J. L. 5, 518. 6956 a. Gr. 30, 4. 5. C. J. L. 2, 3706. 3, 1952. 1953. 2676. 6428. 8, 1649. 5707.
+
+--- Cognationis A. E. M. Oe. 8 p. 111.
+
+--- Idaea C. J. L. 6, 495. 10, 6075. 6557. 9, 424. 8, 2633.
+
+--- Vestinar. C. J. L. 9, 5061.
+
+aedes M. M. C. J. L. 3, 1953. 2676. A. E. M. Oe. 8 p. 111.
+
+fanum M. M. C. J. L. 3 1952. 5, 4985.
+
+templum M. M. C. J. L. 2, 3706.
+
+Mater magena C. J. L. 10, 1587.
+
+--- magiana C. J. L. 3, 6428.
+
+Minerva Berecintia C. J. L. 9, 1538.
+
+--- Paracentia C. J. L. 9, 1539. 1541. 1542.
+
+--- Parachintia C. J. L. 9, 1540.
+
+Mithras (Methras) invictus C. J. L. 6, 500. 507. 509. 511.
+
+Mithras (Methras) Persidicus C. J. L. 6, 511.
+
+Mithras deus Sol invictus C. J. L. 6, 504. 510.
+
+Mithras summus invictus C. J. L. 6, 1675. B. J. R. 1884 p. 56 sq. cf. C. J. L. 6, 736.
+
+templum C. J. L. 6, 511. cf. Sol.
+
+Navis Salvia C. J. L. 6, 492-94.
+
+signum Nemesem A. J. R. 40 p. 390, 4.
+
+Numeu Augusti G. N. p. 86; n. sanctissimum C. J. L. 8, 9401.
+
+in honore numinis C. J. L. 8, 8457.
+
+simulacra numinum C. J. L. 8, 8457.
+
+Nymphae C. J. L. 6, 9118.
+
+Proserpina C. J. L. 6, 508.
+
+Silvanus dendrophorus O. 1602.
+
+signum Silvani A. J. R. 40 p. 375.
+
+Sol (deus) C. J. L. 6, 501. 1778 cf. Mithras.
+
+Suria dea C. J. L. 9, 6099.
+
+Superi C. J. L. 6, 10098.
+
+templum religiosissimum C. J. L. 8, 8457.
+
+Terra mater C. J. L. 8, 5524.
+
+signum T. M. A. J. R. 40 p. 373.
+
+Tutatores C. J. L. 6, 512.
+
+Venus Caelesta ! C. J. L. 10, 1596.
+
+Vesta C. J. L. 6, 511. 1778.
+
+templum divi Vespasiani C. J. L, 10, 3698.
+
+Vires C. J. L. 6, 797.
+
+Virtus A. J. R. 40 p. 375.
+
+## 2\. Sacerdotes, sacerdotia, sacra.
+
+aedituus C. J. L. 5, 519. Or. 2984 (J. R. N. 6865).
+
+aemobolium C. J. L. 9, 3014. 3015.
+
+aeterna sedes C. J. L. 6, 9118.
+
+aeternitas C. J. L. 8, 8457.
+
+antistes C. J. L. 6, 511. 8, 9401.
+
+apparator J. L. p. 36.
+
+archibucolus (arcibuculus) C. J. L. 6, 504. 510. 1675. B. J. R. 1884 p.56.
+
+archidendrophorus C. J. L. 3, 763.
+
+archigallus C. J. L. 6, 2183. 10, 3810. 5, 488. Or. 2321. J. L. p. 28. 31. E. E. 3, 2 (arcigallus). C. J. L. 8, 8203. A. J. R. 40 p. 390 n. 4. 5.
+
+augur C. J. L. 6, 505, 506. 511. 1778. 9, 1538.
+
+augur publicus populi Romani Quiritium C. J. L. 6, 503. 504. 511.
+
+ballatores C. J. L. 6, 2265 (sodales).
+
+bucranium J. L. p. 24.
+
+caernophorus (cernophora) C. J. L. 10, 1803. 2, 179.
+
+cannoforae C. J. L. 9, 2480.
+
+cannophori (cannofori) C. J. L. 10, 24 (collegius). A. J. R. 40 p. 390 n. 4-6. 3 (immunis).
+
+collegium cannophororum A. J. R. 40 p. 390 n. 1. 2. C. J. L. 5, 5830.
+
+consacerdos (fem.) C. J. L. 9, 1540.
+
+criobolium C. J. L. 6, 494. 501-506. 508-510. A. J. R. 40 p. 399. C. J. L. 9, 1538. 3014. 3015. 8, 8203. C. J. L. 6, 502 (cr. repetitum).
+
+crion E. E. 3, 15.
+
+cultor C. J. L. 6, 494. 511. 10, 3764.
+
+curator aedium sacrarum et operum locorumque publicorum C. J. L. 6, 3702.
+
+curialis C. J. L. 6, 1778 (Paul. Diac. p. 64, 1).
+
+cymbala, tympana, catillum, forfices C. J. L. 3, 1952.
+
+cymbalistria C. J. L. 9, 1538 (loco secundo) 5, 519.
+
+dendrofori (dendrophori). C. J. L. 10, 3699. A. J. R. 40 p. 367. 368. 373-375. 386. 399. C. J. L. 5, 81. G. N. n. 414. J. L. p. 31. C. J. L. 8, 7956. 8457. collegium d. C. J. L. 5, 5830. patronus collegii d. A. J. R. 40 p. 374. C. J. L. 10, 3699. pater coll. d. A. J. R. 40 p. 383. corpus d. A. J. R. 40 p. 375.
+
+dendroforus decretarius C. J. L. 8, 7956.
+
+dendrophorus O. 1602. J. L. p. 24. C. J. L. 8, 9401 (dignissimus).
+
+dendrophorus immunis Suessulanus C. J. L. 10, 3764.
+
+duodecembyr C. J. L. 6, 500.
+
+ecitium C. J. L. 10, 1596.
+
+fanaticus C. J. L. 6, 490.
+
+flamen C. J. L. 9, 1153. 8, 1649. G. N. 7 (primus).
+
+haruspex publicus primarius C. J. L. 9, 1540.
+
+hieroceryx C. J. L. 6, 500. 504.
+
+hierofanta (es) C. J. L. 6, 504. 507. 510. 511. B. J. R. 1884 p. 56. C. J. L. 6, 1675 (ierofantes) 1778.
+
+hierophantria C. J. L. 6, 1780.
+
+hymnologus primus B. J. R. 1884 p. 154.
+
+Isiaca C. J. L. 6, 1780.
+
+Iarophorum signa C. J. L. 3, 1952.
+
+magister cognitionum sacrarum C. J. L. 6, 510.
+
+magister collegii cultorum C. J. L. 6, 494.
+
+Martensium collegium C. J. L. 5, 5830.
+
+mesonyctium J. L. p. 24.
+
+ministra C. J. L. 9, 3146.
+
+misticus E. E. 3, 2.
+
+neocorus C. J. L. 6, 1778.
+
+pantelium C. J. L. 10, 1596.
+
+pater C. J. L. 6, 504. 511. 510 (pater patrum).
+
+pater sacrorum C. J. L. 6, 500. 507. 509. 511. 1675. B. J. R. 1884 p. 56.
+
+pontifex C. J. L. 6, 498. 501. 511. 1778. 10, 4635.
+
+pontifex maior C. J. L. 6, 501. 509. 1675. B. J. R. 1884 p. 56. C. J. L. 6, 503.
+
+pontifex perpetuus Or. 2332. J. L. p. 28.
+
+pontifex Volkani et aedium sacrarum A. J. R. 40 p. 378. 379.
+
+quindecimvir C. J. L. 6, 1778. J. L. p. 24.
+
+quindecimvir sacris faciundis C. J. L. 6, 497. 499. 501. 509. 1675. B. J. R. 1884 p. 56. C. J. L. 10, 3698. 3699. Visconti mon. Gabini p. 181. amplissimum et sanctissimum collegium quindecimv. s. f. C. J. L. 6, 508.
+
+religiosus C. J. L. 9. 734. 8, 8457. capiliatus C. J. L. 6, 2262 (cf. Arnob. 5, 7. 16). de Capitolio C. J. L. 6, 2263.
+
+ager religiosorum C. J. L. 10, 1894.
+
+sacerdos (masc.) C. J. L. 6, 496. 500. 504. 2258. 10, 1596. 3698. 3699. 9, 734. 1540. 3014. 3015. 3146. 5061. A. J. R. 40 p. 375. 379 ? Or. 2326. 2984 (J. R. N. 6865). H. 5962. C. J. L. 5. 81. 519. 5862. 5881. Or. 2331. J. L. p. 24. 28. 31. 33. 36. W. 124. G. N. 451. Gr. 29, 10. 13. 14. 30, 1. 4. 5. 31, 3. 4. W. 2088. E. E. 3, 2 ?. 15. C. J. L. 3, 5021. 8, 1649. 2230. 5707. 8203.
+
+sacerdos (fem.) C. J. L. 6, 496. 512. 2259-61. 10, 6074. 6075. H. 7200. C. J. L. 9, 1100. 1153. 1529. 5848. 5, 520. 3438.
+
+sacerdu[o]s maxima C. J. L. 6, 502. 2257.
+
+sacerdos quindecimviralis C. J. L. 10, 3764, 4726. 9, 981. 5, 4400. Or. 2332. C. J. L. 1538. 1541. 1542 (prima). C. J. L. 9, 1541 (secundo loco).
+
+sacerdotia (fem.) J. L. p. 36.
+
+sacerdos Phrygius maximus C. J. L. 6, 508.
+
+sacerdoti perpetuitas J. L. p. 24.
+
+sacerdotium C. J. L. 9, 1153.
+
+sacrata C. J. L. 6, 508. 1780 (apud Eleusinam, apud Laernam, apud Aeginam).
+
+septemvir epulonum C. J. L. 6, 501. 1675. B. J. R. 1884 p. 56.
+
+sevir (Augustalis) C. J. L. 5, 3438. J. L. p. 24. G. N. n. 392. A. J. R. 40 p. 374. C. J. L. 3, 2676.
+
+taurobolium (tauribolium, tauropolium, tauribolium) C. J. L. 9, 1539. Gr. 31, 6. J. L. p. 38. Or. 2323.
+
+--- accipere Gr. 29, 8. hostiis suis Gr. 29, 13. 30, 1. 5. Or. 2331. W. 124.
+
+--- celebrare Gr. 29, 10. Or. 2327 (t. indictum ex stipe conlata).
+
+--- conficere C. J. L. 6, 498.
+
+--- consummare J. L. p. 28. 33. 36.
+
+--- facere C. J. L. 6, 505. 507. 736. 9, 1538. 1540. A. J. R. 40 p. 399 ?. Visconti mon. Gab. p. 181. G. N. n. 7. 393. 407. 414. 451. 452. Gr. 29, 11. 14. 30, 1. 4. 5 (hostiis suis). 31, 2. 4. 3 (hostiis suis). J. L. p. 24. 28. 31. 33. 36. Or. 2332 (cum suis hostis et adparamentis omnibus). E. E. 3, 15.
+
+--- inchoare J. L. p. 28. 33. 36.
+
+--- pangere C. J. L. 6, 506.
+
+--- percipere C. J. L. 6, 497. 501. 503. 504. 508 (caerno).
+
+--- perficere C. J. L. 6, 499.
+
+--- tradere C. J. L. 6, 508. 9, 1538. 1540-42.
+
+taurobolio criobolioque in aeternum renatus C. J. L. 6, 510 (736).
+
+tauroboli magni dux mistice sacri C. J. L. 6, 511.
+
+taurobolium iteratum C. J. L. 6, 512.
+
+--- repetitum C. J. L. 6, 502.
+
+ara tauroboliaca C. J. L. 9, 1538.
+
+tauribolium natalicium redditum E. E. 3, 2.
+
+petra tauroboliata Or. 2326.
+
+sacra tauroboli C. J. L. 10, 4829.
+
+simbola tauroboli C. J. L. 6, 511.
+
+tauroboliatus C. J. L. 6, 511. 1675. 1778. B. J. R. 1884 p. 56. C. J. L. 9, 6099.
+
+tauroboliata C. J. L. 6, 1778-80.
+
+tibicen J. L. p. 31. 33. 36.
+
+tympanistria C. J. L. 6, 2264.
+
+vice sacra cognoscens C. J. L. 6, 510.
+
+vires aeternae Or. 2323.
+
+vires conditae Or. 2332.
+
+vires excipere Gr. 30, 4.
+
+vires excipere et a Vaticano transferre J. L. p. 24.
+
+vires tauri quo proprie per tauropolium publice factum fecit consacrare W. 124. Gr. 30, 5.
+
+# Vita.
+
+Natus sum Henricus Rudolfus Goehler a. d. 6 Kal. Aug. anni h. s. 63 Dresdae, Henrico patre, matre Carola e gente Foerster, quibus superstitibus valde gaudeo. fidei addictus sum evangelicae. primis litterarum elementis imbutus ab a. 74 usque ad a. 82 scholam sanctae crucis adii, quae nunc etiam floruit rectore Hultschio bene de me merito. postquam autem tempore vernali maturitatis testimonium adeptus sum, universitatis Lipsiensis civis factus studiis philologicis et historicis me tradidi atque viros illustrissimos Arndtium, Brandesium, Brugmannum (nunc Freiburgensem), Gurtium, Ecksteinium, Gardthausenum, Heinzium, Hirzelium, Langium, Lipsium, Ribbeckium, Roscherum, G. Voigtium, Wundtium, F. Zarnckium docentes audivi. per quattuor semestria proseminarii regii philo- logici tum rectore Lipsio sodalis Curtii Langii Ribbeckii bene- volentia factum est, ut reciperer in seminarium regium philo- logicum. frequentavi per bina semestria seminarium regium paedagogicum Ecksteinii, per quinque semestria seminarium regium historicum rectore Gardthauseno, cui fautori studiorum meorum magnam habeo gratiam semperque habebo. praeterea sodalis interfui per bina semestria societati philologicae Ribbeckii, antiquariae Langii et Lipsii, quem semper benevole studiis meis favisse pio gratoque animo profiteor.
+
