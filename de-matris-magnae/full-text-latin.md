@@ -1088,4 +1088,143 @@ Inscriptiones graecae.
 
 ## 1\. Di, deae cum templis.
 
+[GREEK] _C. I. A._ 3, 1062.
+
+[GREEK] C. I. G. 3993 cf. [GREEK].
+
+[GREEK] C. I. G. 6836.
+
+[GREEK] _C. I. G._ 3886. 3993 ([GREEK]). 6012 b (C. I. L. 6, 509) cf. [GREEK]. Lueders d. Dionysischen künstler p. 9 sq.
+
+[GREEK] C. I. G. 3508. 3886. 3993 ([GREEK]). M. I. A. 7 p. 151.
+
+[GREEK] C. I. G. 3886.
+
+[GREEK] C. I. A. 3, 172. [GREEK] C. I. G. 6012 b (C. I. L. 6, 509).
+
+[GREEK] C. I. A. 3, 136. C. I. G. 3156 ([GREEK]).
+
+[GREEK] C. I. G. 3993.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. G. add. 2465 f. 3886.
+
+[GREEK] B. C. H. p. 328.
+
+[GREEK] C. I. G. 2374. 6206.
+
+[GREEK] C. I. G. 3886.
+
+[GREEK] B. C. H. 6 p. 501.
+
+[GREEK] C. I. G. 3886.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 3260. 3385. 3386. 3411.
+
+[GREEK] C. I. G. 3668. [GREEK] C. I. G. 2, 622.
+
+[GREEK] C. I. G. add. 2465 c.
+
+[GREEK] C. I. G. 5856.
+
+[GREEK] C. I. A. 2, 622.
+
+[GREEK] C. I. A. 2, 622.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. G. 3657.
+
+[GREEK] M. I. A. 7, 651.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. G. add. 2465 f. [GREEK] C. I. A. 2, 842. M. I. A. 7 (1882) p. 132. B. C. H. 7 p. 69.
+
+[GREEK] M. I. A. 7 p. 151. C. I. A. 3, 172.
+
+[GREEK] M. I. A. 4 p. 130.
+
+[GREEK] C. I. G. add. 2466 c. d. f.
+
+[GREEK] M. I. A. 3. p. 389 (nn. 156. 158). 397. 7, 151. A. E. M. Oe. 7, 175. B. C. H. 3, 324. Kaibel epigr. gr. 1038 ([GREEK]). [GREEK] C. I. G. 3993. [GREEK] C. I. G. 2374. [GREEK] C. I. G. 2374. [GREEK] C. I. G. 3156.
+
+[GREEK] C. I. G. 487. add. 2010 c. 3508. 6012 c. 6206. C. I. A. 2, 
+465-468. 470. 471. 607. 614. 3, 888. 1062. M. I. A. 3 p. 397. 6 p. 500. B. C. H. 3 p. 339. A. E. M. Oe. 7 p. 176 ([GREEK]), L. W. 3, 1653. I. P. 107.
+
+[GREEK] C. I. G. 3886. [GREEK] C. I. G. 6837.
+
+--- [GREEK], A. E. M. Oe. 8, 198.
+
+--- [GREEK] C. I. A. 1, 273.
+
+--- [GREEK] C. I. A. 3, 134. 136. 137.
+
+--- [GREEK] C. I. G. 3668 (D. 270).
+
+--- [GREEK] Lueders d. Dionys. k. p. 9. t. 2.
+
+--- [GREEK] B. C. H. 6 p. 501.
+
+--- [GREEK] C. I. G. 6838.
+
+--- [GREEK] C. I. G. 6835.
+
+--- [GREEK] C. I. G. 3657. M. I. A. 7 p. 151.
+
+--- [GREEK] C. I. G. 3657.
+
+[GREEK] M. I. A. 7 p. 151.
+
+--- [GREEK] L.-W. 3, 699.
+
+--- [GREEK] C. I. G. 6012 b. (C. I. L. 6, 509).
+
+--- [GREEK] C. I. C. 3137. 3193. 3260. 3286. 3385. 3386. 3387 ([GREEK]). 3401. 3411.
+
+--- [GREEK] B. C. H. 3 p. 328 (cf. [GREEK]).
+
+--- [GREEK] C. I. G. 4695.
+
+--- [GREEK] C. I. G. 4121.
+
+--- [GREEK] C. I. G. add. 2107 b.
+
+--- [GREEK] Kaibel epigr. gr. 44.
+
+[GREEK] Monum. Ancyr. 18, 24.
+
+[GREEK] C. I. G. 5570.
+
+[GREEK] C. I. G. 3727.
+
+[GREEK] C. I. G. 3137. C. I. A. 2, 404. 421. 551.
+
+[GREEK] C. I. G. 6206.
+
+[GREEK] C. I. G. 3508.
+
+[GREEK] C. I. G. 3193.
+
+[GREEK] B. C. H. 6 p. 501.
+
+[GREEK] C. I. G. add. 2465 f.
+
+[GREEK] C. I. G. 2374.
+
+[GREEK] ? C. I. G. 2860. [GREEK] C. I. A. 3, 172.
+
+[GREEK] C. I. G. 6012 c.
+
+[GREEK] C. I. G. 3953 d.
+
+[GREEK] C. I. G. 6012 c.
+
+2\. Sacerdotes, sacerdotia, sacra.
+
 ...
