@@ -216,7 +216,7 @@ Tit. _C. I. L. 8, 2230_ in Africa rep., quem Matri deum sacrum pro salute impera
 
 Deinde imperatorum Septimii Severi eiusque filii M. Aurelii Antonini aetate orti sunt tituli cannophororum Ostiensium (cf. p. 3.), quorum tertius _Ann. Inst. 40 p. 390 sq. n. 3_ ad certum spectat annum nominibus consulum Asprorum (a. 212) additis.
 
-Denique restat ut dicam de tit. (C. I. G. 189) _C. I. A. 3, 1062_, quo consensu senatus quingentorum prytanes [GREEK] Euphrosyno prostatae ob merita eius statuam decreverunt, cum Aurelius Dionysius [GREEK] erat. quaeritur autem, quis fuerit Agapetus. ac Boeckhius quidem censet Antoninum Pium intellegendum esse; attamen Dittenberger l. l. recte contradicit Minervae Poliadis nomen inter prytanes, quorum nomina titulo subscripta sunt, titulis C. I. A. 3, 1054-56 exceptis, qui pertinent ad initium saeculi tertii, nusquam praeterea reperiri; quo accedere, quod pagorum designatio desit. itaque existimo Agapetum esse Septimium Severum.
+Denique restat ut dicam de tit. (C. I. G. 189) _C. I. A. 3, 1062_, quo consensu senatus quingentorum prytanes φυλῆς Ἀντιοχίδος Euphrosyno prostatae ob merita eius statuam decreverunt, cum Aurelius Dionysius ἄρχων ἱερεὺς Μητρὸς θεῶν καὶ Ἀγαπητοῦ erat. quaeritur autem, quis fuerit Agapetus. ac Boeckhius quidem censet Antoninum Pium intellegendum esse; attamen Dittenberger l. l. recte contradicit Minervae Poliadis nomen inter prytanes, quorum nomina titulo subscripta sunt, titulis C. I. A. 3, 1054-56 exceptis, qui pertinent ad initium saeculi tertii, nusquam praeterea reperiri; quo accedere, quod pagorum designatio desit. itaque existimo Agapetum esse Septimium Severum.
 
 Heliogabalus autem maxime Matrem Magnam simul cum ceteris dis orientalibus* coluit. narrat enim Ael. Lampridius in vita eius c. 7 non modo Matris deum sacra eum accepisse atque tauroboliatum esse, sed eo insaniae processisse (c. 28), ut leones sibi iungens Matrem Magnam se appellaret; atque apud Aur. Victorem ep. 23 legimus haec: vestalem virginem quasi matrimonio iungens suo abscissisque genitalibus Matri se Magnae sacravit. nihilominus nullus extat titulus, qui aetati eius tribui potest.
 
@@ -232,9 +232,9 @@ Sequuntur tit. _C. I. L. 9, 3014_ Teatinus, quo taurobolium de suo fecit Petroni
 
 Tum vero nobis dicendum erit de titulo _C. I. G. 3886 add._, quo legendum est:
 
-[GREEK].
+Ὁ δῆμος ἐτείμ[ησεν]/Μόνιμον Ἀρίστων[ος]/τὸν λαμπαδάρχην [Λιός ]/Σωτῆρος καὶ Ἀπόλλ[ωνος καί]/Μηνὸς Ἀσκαηνοῦ [καί]/θεῶν Ἀνγδίστεων [καὶ Ἀγαθοῦ]/Δαίμονος καὶ εὐσεβ[ἐστάτης Σε]/βαστῆς Εἰρήνης, σ[τρατηγήσαντα]/τῆς πόλεως τὸ ἔκτον [γυμνασιαρ/χ]ήσαντα καὶ ἐγλογιστ[εύσαντα]/καὶ ἀγορανομήσαντα [καὶ εἰρηναρ]/χήσαντα [κ]αἱ παρὰ πάντα τὸν/[χρόνον πολ]ιτευσ[άμενον ἂριστα].
 
-Cavedonius autem (Ann. Inst. 19, 136) demonstravit [GREEK] et [GREEK] referenda esse ad Otacillam et Philippum, qui inter annos 243 et 249 praeerat imperio Romano. etenim quod Letronnius [GREEK] legi vult atque refert haec verba ad Iuliam Domnam aut Iuliam Mamaeam, quia illis ambabus cognomina Felix Pia tribuuntur, huic sententiae obstat quod Felix sermone Graeco non redditur _v._ [GREEK], sed semper _v._ [GREEK].
+Cavedonius autem (Ann. Inst. 19, 136) demonstravit ἀγαθὸν δαίμονα et Σεβαστὴν Εἰρήνην referenda esse ad Otacillam et Philippum, qui inter annos 243 et 249 praeerat imperio Romano. etenim quod Letronnius φιλοδαίμονος καὶ εὐσεβεστάτης Σεβαστῆς Εἰρήνης legi vult atque refert haec verba ad Iuliam Domnam aut Iuliam Mamaeam, quia illis ambabus cognomina Felix Pia tribuuntur, huic sententiae obstat quod Felix sermone Graeco non redditur _v._ φιλοδαίμων, sed semper _v._ εὐτυχής.
 
 Nunc audiamus Cyprianum,* qui ab a. 200 usque ad a. 257 floruit, episcopum Carthaginiensem, qua in regione Matrem Magnam cultam esse compluribus inscriptionibus confirmatur (cf. C. I. L. 8, 1649. 1776. 2230. 2633. 4846 etc. Eph. E. 5, 614), in carmine ad senatorem ex christiana religione ad idolorum servitutem conversum sic loquentem:
 
