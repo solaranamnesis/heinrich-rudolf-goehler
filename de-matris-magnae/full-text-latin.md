@@ -1122,7 +1122,7 @@ locorum, in quibus ædem Matris Magnæ fuisse scriptores et tituli certiores nos
 | Salonae              | ---                       | C. J. L. 3, 1953 P. Julius Rufus aedem Matr. Mag. d. s. p. f. c. idemque dedic. 1954 L. Statius L. f. facula quinq. Matri deum, aedem d. p. s. f. ex voto. Archäol. epigr. mitt. aus Östr. 8 p. 111 Matri Magnae cognationis C. Turranius Cronius sevir August. voto suscepto aedem et aram d. s. p. fecit et expolit idemque dedicavit. |
 | Tragura              | ---                       | C. J. L. 3, 2676. L. Stallius Secundus sevir Aug. et Stallia Callirhoe uxor cum liberis aedem Matri Magnae ex voto suscpto fecerunt s. p.                                                                                                                                                                                                |
 
-## Africa.
+## 7\. Africa.
 
 | **Urbs aut oppidum** | **Testimonia scriptorum** | **Tituli**                                 |
 |----------------------|---------------------------|--------------------------------------------|
