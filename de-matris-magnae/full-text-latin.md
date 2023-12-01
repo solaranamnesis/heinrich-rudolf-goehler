@@ -430,7 +430,7 @@ Sed ad alia transeamus. Lucianus quod Pseudol. 11 dicit: εἰπὲ γάρ μο�
 β]οῦς ἕλικας, πάντων τούτων καὶ σὺ κράτ[ος ἕξεις*  
 καὶ πάντ᾽ ἔστε σ[ο]ὶ ὅσα ἐπ[ει]ρώτως σὺ [SVG]
 
-atque profecto non modo in oraculo talario extat nomen Matris deum, sed etiam in carmine, quod ex Apulei cuiusdam libello traditum in Geoponicis (ed. Niclas 1781) 13, 5, 4 legitur: [GREEK].*
+atque profecto non modo in oraculo talario extat nomen Matris deum, sed etiam in carmine, quod ex Apulei cuiusdam libello traditum in Geoponicis (ed. Niclas 1781) 13, 5, 4 legitur: λαβὼν χάρτην ἔγγραψον εἰς αὐτὸν ταῦτα · ἐξορκίζω μῦς τοὺς ἐνταῦθα καταλαμβανομένους, μή με ἀδικήσῃτε αὐτοὶ μήτε ἄλλον ἑασῃτε · δίδωμι γὰρ ἀγρὸν ὑμῖν τόνδε (καὶ λέγεις ποῖον). εἰ δὲ ὑμᾶς ἔτι ὧδε ὄντας καταλάβω, παραλαβὼν τῶν θεῶν τὴν Μητέρα διαιρήσω ὑμᾶς εἰς μέρη ζ΄ κτλ.*
 
 *) Similia oracula reperies C. I. G. 4310. 4379. 3956 c ? cf. Stuhr l. l. p. 483. de ludo talario apud Romanos egit in universum Friedlaender darstell. aus d. röm. sittengesch. 5 1 p. 376 sq.
 
@@ -468,7 +468,7 @@ Cybele autem non solum in bigis* atque quadrigis* leonum vehitur, sed etiam aut 
 
 *) Arnob. 5, 7. Luc. de dea Syr. 15. Aug. d. civ. d. 7, 24.
 
-*) [GREEK] Cybele appellatur in Orphei hymn. 27, 11.
+*) Τυμπανοτερπής Cybele appellatur in Orphei hymn. 27, 11.
 
 *) Ovid f. 4, 342. Stat. Theb. 2, 78. Claud. 3 cons. Stil. 364. Phaedr. 3, 20.
 
@@ -488,7 +488,7 @@ Attidis* autem ad truncum arboris, de qua dependent cymbala, se applicantis stat
 
 *) Attis in monumentis sepulcralibus cf. jhrbb. d. ver. v. altertumsfr. im Rheinl. 19, 60. 23, 49 sq. tab. 1 fig. 2. tab. 2 fig. 1. 2. tab. 3. monumenti dell' inst. vol. 9 tab. 8, 2; quoniam Visconti (ann. inst. 41, 1869 p. 224 sq.) diligentissime disputavit de illa pulchra Attidis figura sarcophagi Ostiensis, cui insculpta est inscriptio: Numini Attis C. Cartilius Euplus ex monitu deae, hoc loco sufficit eius mentionem facere.
 
-*) Encycl. Paul. 1, 2, 2115. Mionn. 5 p. 301. suppl. 9, 231. de aliis Cybeles et Attidis imaginibus cf. Zoëga Bassirilievi. Mionn. 4, 391. Cohen 1 3 p. 439. 2 3, 164. 223. gravissimum autem monumentum extat in ara, quam dedicavit L. Cornelius Scipio Orfitus (C. I. L. 6, 505); quod cum saepissime a viris doctis exploratum sit, hoc loco de eo plura dicere mihi supervacaneum esse videtur. Haackhii autem sententia, qui ex verbis Plut. v. Marii 17: [GREEK], tum ex monumentis iuxta Rhenum repertis, in quibus duo iuvenes, quorum unusquisque Attis est, conspiciuntur, cogitandum esse concludit de fratribus quos cum Dioscuris comparat, reicienda est; nam [GREEK] per se etiam ad Cybeles et Attidis sacrarium referri possunt atque in monumentis illis duplex Attidis imago in utraque parte non nisi praeter symmetriam ficta est (verhdl. deutsch. philolog. in Stuttg. 1857 p. 156 sq.).
+*) Encycl. Paul. 1, 2, 2115. Mionn. 5 p. 301. suppl. 9, 231. de aliis Cybeles et Attidis imaginibus cf. Zoëga Bassirilievi. Mionn. 4, 391. Cohen 1 3 p. 439. 2 3, 164. 223. gravissimum autem monumentum extat in ara, quam dedicavit L. Cornelius Scipio Orfitus (C. I. L. 6, 505); quod cum saepissime a viris doctis exploratum sit, hoc loco de eo plura dicere mihi supervacaneum esse videtur. Haackhii autem sententia, qui ex verbis Plut. v. Marii 17: Βαττάκης... ἀπαγγέλλων ὡς ἡ θεὸς ἐκ τῶν ἀνακτόρων ἐφθέγξατο αὐτῷ, tum ex monumentis iuxta Rhenum repertis, in quibus duo iuvenes, quorum unusquisque Attis est, conspiciuntur, cogitandum esse concludit de fratribus quos cum Dioscuris comparat, reicienda est; nam ἀνάκτορα per se etiam ad Cybeles et Attidis sacrarium referri possunt atque in monumentis illis duplex Attidis imago in utraque parte non nisi praeter symmetriam ficta est (verhdl. deutsch. philolog. in Stuttg. 1857 p. 156 sq.).
 
 Haec habui, quibus ad illustrandum Cybeles et Attidis cultum Romanorum aliquid conferre posse viderer.
 
@@ -496,7 +496,7 @@ Haec habui, quibus ad illustrandum Cybeles et Attidis cultum Romanorum aliquid c
 
 De sacerdotibus et diebus festis.
 
-Postquam cultum Cybeles Romani cognoverunt, sacerdotes deae magnam auctoritatem nancti sunt, qui initio ex Phrygia arcessiti primum duo, deinde plures erant et lingua Graeca utebantur (Serv. ad Verg. G. II, 394). Hi vero galli se ipsi mutilabant exemplum Attidis secuti, quapropter spadones (Hor. sat. 1, 2, 120), semimares* (Ovid. f. 4, 183), semiviri,* nec viri nec feminae,* Gallae (Cat. 63, 12. 34) nominantur.* facta autem est castratio testa* (testula) sponte ac quasi furore Agdestio,* quem sonitus tympani, cymbali, crotali saltationesque iniecerunt. hoc quidem loco Luciani narrationem citabo, quae etiamsi de gallis deae Syriae agitur tamen etiam ad gallos Matris Magnae referri potest; leguntur enim de d. Syr. 51 haec: [GREEK] (hoc instrumento utuntur galli deae Syriae) [GREEK].* porro dicit Gallis fuisse communem locum sepulturae atque de regulis loquitur, ex quibus una certe ad nostros quoque gallos spectat sues neque sacrificandos neque edendos esse.*
+Postquam cultum Cybeles Romani cognoverunt, sacerdotes deae magnam auctoritatem nancti sunt, qui initio ex Phrygia arcessiti primum duo, deinde plures erant et lingua Graeca utebantur (Serv. ad Verg. G. II, 394). Hi vero galli se ipsi mutilabant exemplum Attidis secuti, quapropter spadones (Hor. sat. 1, 2, 120), semimares* (Ovid. f. 4, 183), semiviri,* nec viri nec feminae,* Gallae (Cat. 63, 12. 34) nominantur.* facta autem est castratio testa* (testula) sponte ac quasi furore Agdestio,* quem sonitus tympani, cymbali, crotali saltationesque iniecerunt. hoc quidem loco Luciani narrationem citabo, quae etiamsi de gallis deae Syriae agitur tamen etiam ad gallos Matris Magnae referri potest; leguntur enim de d. Syr. 51 haec: ἐν ταύτῃσι τῇσιν ἡμέρῃσι καὶ Γάλλοι γίγνονται · ἐπεὰν γὰρ οἱ ἄλλοι αὐλέωσί τε καὶ ὄργια ποιέωνται, ἐς πολλοὺς ἤδη ἡ μανίη ἀπικνέεται, καὶ πολλοὶ οἱ ἐς θέην ἀπικόμενοι μετὰ δὲ τοιὰδε ἔπρηξαν. καταλέξω δὲ καὶ τὰ ποιέουσιν. ὁ νεηνίης, ὅτῳ τὰδε αποκέαται, ῥίψας τὰ εἵματα μεγάλῃ βοῇ ἐς μέσον ἔρχεται καὶ ξίφος (hoc instrumento utuntur galli deae Syriae) ἀναιρέεται · τὰ δὲ πολλὰ ἔτεα, ἐμοὶ δοκέει, διὰ τοῦτο ἕστηκε · λαβὼν δὲ αὐτίκα τάμνει ἑωυτὸν θέει τε διὰ τῆς πόλιος καὶ τῇσι χερσὶ φέρει τὰ ἔταμεν. ἐς ὁκοίην δὲ οἰκίην τάδε ἀπορρίψει, ἐκ ταύτης ἐσθῆτά τε θηλέην καὶ κόσμον τὸν γυναικήιον λαμβάνει.* porro dicit Gallis fuisse communem locum sepulturae atque de regulis loquitur, ex quibus una certe ad nostros quoque gallos spectat sues neque sacrificandos neque edendos esse.*
 
 *) Attis etiam semimasculus nominatur ap. Fulgent. myth. 3, 5.
 
@@ -504,7 +504,7 @@ Postquam cultum Cybeles Romani cognoverunt, sacerdotes deae magnam auctoritatem 
 
 *) Verg. Ae. 9, 617. Ovid f. 4, 455.
 
-*) De nomine cf. anecd. gr. ed. Bachm. p. 341 et vett. lexicographos; invenitur etiam nomen [GREEK] Luc. Eun. 18. Cronos. 12. Athen. 4, 134 b. [GREEK] cf. Leutsch. paroemiogr. p. 152. Galli sanguinei nominantur a Lucano 1, 567. Claudian. rapt. Pros. 2, 269. Prop. 2, 18, 15. cf. Iamblich. de myst. 2, 4. Manetho. apotel. 6, 297 sq. (ed. Koechly 3). Minuc. Fel. Oct. 22.
+*) De nomine cf. anecd. gr. ed. Bachm. p. 341 et vett. lexicographos; invenitur etiam nomen βάκηλος Luc. Eun. 18. Cronos. 12. Athen. 4, 134 b. γαλλιστὶ τεμεῖν cf. Leutsch. paroemiogr. p. 152. Galli sanguinei nominantur a Lucano 1, 567. Claudian. rapt. Pros. 2, 269. Prop. 2, 18, 15. cf. Iamblich. de myst. 2, 4. Manetho. apotel. 6, 297 sq. (ed. Koechly 3). Minuc. Fel. Oct. 22.
 
 *) Plin. h. n. 35, 165. Iuv. 6, 511. Cat. 62, 5. Mart. 3, 81, 3. Arnob. adv. n. 5, 16. 17.
 
@@ -512,9 +512,9 @@ Postquam cultum Cybeles Romani cognoverunt, sacerdotes deae magnam auctoritatem 
 
 *) Firm. de err. prof. rel. p. 6. Aug. de civ. dei 7, 26.
 
-*) Gallis licuisse non videtur [GREEK] cf. Athon. p. 222 D. a feminis eos amari (Luc. de d. Syr. 22) legimus apud Westermanni mythographos p. 388, 9 sq. quantopere autem posteriore aetate despecti sint, elucet ex Apul. met. l. 8 p. 182: tunc fortuna mea saevissima emptorem aptissimum duris meis casibus mire repertum obiecit; cinaedum et senem, calvum quidem cincinnis semicanis et pendulis capillatum: unum de triviali popularium faece, qui per plateas et oppida cymbalis et crotalis personantes deamque Syriam circumferentes mendicare compellunt. similiter dicit August. d. civ. d. 2, 26: itemque de mollibus eidem Matri Magnae contra omnem virorum mulierumque verecundiam consecratis, qui usque in hesternum diem madidis capillis, facie dealbata, fluentibus membris, incessu femineo per plateas vicosque Carthaginis etiam a populis unde turpiter viverent exigebant (nihil Varro dicere voluit nec uspiam me legisse commemini). defecit interpretatio, erubuit ratio, conticuit oratio. alludunt profecto ad hunc morem medicandi, a quo valde aliena erat Romae consuetudo Matris Magnae sacerdotum certis diebus stipis exigendae, et Tertullianus ap. c. 15: circuit caupona religio mendicans, exigit mercedem pro solo templi, pro aditu sacri, non licet deos gratis nosse, venales sunt, et Minuc. Fel. Oct. 24, 3 alii... mendicantes vicatim deos ducunt. cf. Lobeck. Aglaoph. 632. eadem nobis traduntur de Isidis sacerdotibus cf. Ovid. ex P. 1, 1, 37. Prop. 4, 8, 39. tales vero cinaedos nunc quoquo reperiri, qui Ciarauli nominati in Sicilia carmina in plateis docent, cognoscimus dissertatiuncula, quae extat in annalibus "allg. evang. luther. kirchenzeitung" a. 1883 n. 26 p. 613 sq.
+*) Gallis licuisse non videtur σκόροδα φαγεῖν cf. Athon. p. 222 D. a feminis eos amari (Luc. de d. Syr. 22) legimus apud Westermanni mythographos p. 388, 9 sq. quantopere autem posteriore aetate despecti sint, elucet ex Apul. met. l. 8 p. 182: tunc fortuna mea saevissima emptorem aptissimum duris meis casibus mire repertum obiecit; cinaedum et senem, calvum quidem cincinnis semicanis et pendulis capillatum: unum de triviali popularium faece, qui per plateas et oppida cymbalis et crotalis personantes deamque Syriam circumferentes mendicare compellunt. similiter dicit August. d. civ. d. 2, 26: itemque de mollibus eidem Matri Magnae contra omnem virorum mulierumque verecundiam consecratis, qui usque in hesternum diem madidis capillis, facie dealbata, fluentibus membris, incessu femineo per plateas vicosque Carthaginis etiam a populis unde turpiter viverent exigebant (nihil Varro dicere voluit nec uspiam me legisse commemini). defecit interpretatio, erubuit ratio, conticuit oratio. alludunt profecto ad hunc morem medicandi, a quo valde aliena erat Romae consuetudo Matris Magnae sacerdotum certis diebus stipis exigendae, et Tertullianus ap. c. 15: circuit caupona religio mendicans, exigit mercedem pro solo templi, pro aditu sacri, non licet deos gratis nosse, venales sunt, et Minuc. Fel. Oct. 24, 3 alii... mendicantes vicatim deos ducunt. cf. Lobeck. Aglaoph. 632. eadem nobis traduntur de Isidis sacerdotibus cf. Ovid. ex P. 1, 1, 37. Prop. 4, 8, 39. tales vero cinaedos nunc quoquo reperiri, qui Ciarauli nominati in Sicilia carmina in plateis docent, cognoscimus dissertatiuncula, quae extat in annalibus "allg. evang. luther. kirchenzeitung" a. 1883 n. 26 p. 613 sq.
 
-Sed iam redeamus, unde profecti sumus. Gallorum enim collegio Matris Magnae Palatinae praeerat archigallus; quomodo hic vestitus fuerit,* ex prostypo apparet, quod extat apud Wieselerum 2, 817: in capite coronam lauream de qua dependent duae taeniae,* tribus clipeis ornatam, quorum in medio Iuppiter Idaeus, in duobus ceteris Attis conspicitur, et mitras et velum et crotalia et occabum portat; ante pectus imago Attidis visitur; dextera autem tres ramos, sinistra canistrum frugibus impletum tenet et in veste [GREEK]* inest; praeterea tympanon tibiae cistaque in latere insculpta sunt.
+Sed iam redeamus, unde profecti sumus. Gallorum enim collegio Matris Magnae Palatinae praeerat archigallus; quomodo hic vestitus fuerit,* ex prostypo apparet, quod extat apud Wieselerum 2, 817: in capite coronam lauream de qua dependent duae taeniae,* tribus clipeis ornatam, quorum in medio Iuppiter Idaeus, in duobus ceteris Attis conspicitur, et mitras et velum et crotalia et occabum portat; ante pectus imago Attidis visitur; dextera autem tres ramos, sinistra canistrum frugibus impletum tenet et in veste μάστιξ ἀστραγαλωτή* inest; praeterea tympanon tibiae cistaque in latere insculpta sunt.
 
 *) de Battacis vestimento cf. p. 9.
 
@@ -540,23 +540,23 @@ Valerianus Ephem. epigr. 3, 2.
 
 Virianus Ampliatus C. I. L. 10, 3810; hisce addam:
 
-[GREEK] (cf. p. 19) cf. C. I. A. 3, 173 p. 27. archigallus nomine non adiecto commemoratur C. I. L. 8, 8203; atque si recte C. I. G. 3953 d legitur [GREEK], eodem munere feminae quoque fungebantur, quod nihil praebet offensionis, quoniam Dionys. 2, 19 dicit Romae Phrygem et Phrygiam praefuisse sacris Idaeis.
+Αὐρ. Διονύσιος ὁ Καλλίππου Λαμπτρεὺς ἄρχων ἱερεὺς Μητρὸς θεῶν καὶ Ἀγαπητοῦ (cf. p. 19) cf. C. I. A. 3, 173 p. 27. archigallus nomine non adiecto commemoratur C. I. L. 8, 8203; atque si recte C. I. G. 3953 d legitur ἀρχιέρεια τῆς πρὸ πόλεως μεγάλης θεᾶς Κυβέλης (Τύχης), eodem munere feminae quoque fungebantur, quod nihil praebet offensionis, quoniam Dionys. 2, 19 dicit Romae Phrygem et Phrygiam praefuisse sacris Idaeis.
 
-Archigallo autem aderant sacerdotes, quorum permulta nomina nobis tradita sunt. quamquam de sacerdotibus Matris Magnae Graecorum iam supra verba feci (cf. etiam p. 3 adn. 3), hoc loco commemorabo nomina [GREEK],* quod et viris et feminis datur, et [GREEK] feminae.* sed permagnus est numerus eorum, qui in orbe terrarum Romano sacra Matris deum obierunt:
+Archigallo autem aderant sacerdotes, quorum permulta nomina nobis tradita sunt. quamquam de sacerdotibus Matris Magnae Graecorum iam supra verba feci (cf. etiam p. 3 adn. 3), hoc loco commemorabo nomina θαλαμηπόλου,* quod et viris et feminis datur, et προπόλου feminae.* sed permagnus est numerus eorum, qui in orbe terrarum Romano sacra Matris deum obierunt:
 
-*) Anthol. Palat. ed. Duebner 6, 173 vv. Rhiani: [GREEK] (Migne patrol. graec. v. 38 ad v. 267 [GREEK]) [GREEK], et Dioscoridis vv. in anth. gr. p. 887.
+*) Anthol. Palat. ed. Duebner 6, 173 vv. Rhiani: Ἀχρυλὶς ἡ Φρυγίη θαλαμηπόλος, ἡ περὶ πεύκαις/πολλάκι τὰς ἱερὰς χευαμένη πλοκάμους/γαλλαίῳ Κυβέλης ὀλολύγματι (Migne patrol. graec. v. 38 ad v. 267 Γαλλαίης Κυβέλης ὀλολύγματα) πολλάκι δοῦσα/τὸν βαρὺν εἰς ἀκοὰς ἦχον ἀπὸ στομάτων/τάσδε θεῇ χαίτας περὶ δικλίδι θῆκεν ὀρείᾳ/θερμὸν ἐπεὶ λύσσης ὧδ᾽ ἀνέπαυσε πόδα, et Dioscoridis vv. in anth. gr. p. 887.
 
-*) Kaibel epigr. gr. 44: [GREEK].
+*) Kaibel epigr. gr. 44: Χαιρεστράτη Μεν] εκρ[άτους Ἰ]καριέως. Μητρὸς παντοτέκνου πρόπολος σεμνή τε γεραιρά/τῷδε τάφῳ κεῖται Χαιρεστράτη, ἣν ὁ σύνευνος/ἔστερξεν μὲν ζῶσαν, ἐπένθησεν δὲ θανοῦσαν · /φῶς δ᾽ ἔλιπ᾽ εὐδαίμων παῖδας παίδων ἐπιδοῦσα.
 
-[GREEK] C. I. G. 3668 (Dittenb. 270) cf. p. 10.
+Σωτηρίδης γάλλος C. I. G. 3668 (Dittenb. 270) cf. p. 10.
 
-[GREEK]* et [GREEK] C. I. G. 6012 c. (Kaibel epigr. gr. 823).
+Κρήσκηνς στεφανηφόρος ἱερεύς* et Λεόντιος C. I. G. 6012 c. (Kaibel epigr. gr. 823).
 
 *) De hac voce cf. Schoemann griech. altertümer 2 p. 415.
 
-[GREEK] C. I. G. 3508 cf. p. 14.
+Οὐλπία Μαρκέλλα ἱέρεια διὰ βίου C. I. G. 3508 cf. p. 14.
 
-[GREEK] nomine omisso C. I. G. 3193.
+ἱέρεια nomine omisso C. I. G. 3193.
 
 Fl. Antonius Eustochius sacerdos Phrygius maximus, quem eundem fuisse atque archigallum arbitror C. I. L. 6, 508.
 
