@@ -20,7 +20,9 @@ Antiquissimis iam temporibus* non modo in Lydia et Phrygia, unde cultus Matris M
 
 *) Mueller-Wieseler denkmäler alter kunst 2, 808, quo loco Cybele Astartae similis in leone sedens et tympanum attollens sole lunaque circumdata conspicitur.
 
-*) Macrob. sat. 1, 23, 17. Ersch et Gruber encycl. 3 p. 24, 408 sq. Nonnus Dionys. 41, 22; apud Socratem in hist. eccl. 3, 23 legitur oraculum, quod Rhodiis datum erat, hoc: [GREEK].
+*) Macrob. sat. 1, 23, 17. Ersch et Gruber encycl. 3 p. 24, 408 sq. Nonnus Dionys. 41, 22; apud Socratem in hist. eccl. 3, 23 legitur oraculum, quod Rhodiis datum erat, hoc:  
+Ἄττιν ἱλάσκεσθαι θεὸν μέγαν ἁγνὸν Ἄδωνιν,  
+εὔβιον, ὀλβιόδωρον, ἐυπλόκαμον Διόνυσον.
 
 *) Hi quoque sacerdotes deae Syriae erant, quam Matri Magnae simillimam fuisse perspicitur Luciani libello de dea Syria conscripto.
 
