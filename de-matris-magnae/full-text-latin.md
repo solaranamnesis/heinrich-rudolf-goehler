@@ -52,7 +52,7 @@ Quando cultus in Graeciam translatus sit, cognosci potest, si locum, qui extat a
 
 *) Cf. Photium et Suidam s. v. μητραγύρτης. schol. ad Aristoph. Plut. 431.
 
-*) Lycurg. Leocr. 66. frg. 8. Demosth. 25, 98. schol. ad Dem. p. 47 ed. Turic. Dem. 18 [GREEK]. 40. 19, 129. Aesch. 1, 60. 3, 187. schol. ad Aesch. p. 47, 4. 426, 6 in oratt. Atticis. Athen. 5, 214 C. 9, 407 C. Harpocr. s. v. Bekker anecd. gr. p. 280. Dinarch. 1, 86. frg. 24. C. I. A. 2, 404, 421, 551 etc. de Iuliano vide supra. cf. C. Curtium das metroon zu Athen als statsarchiv. 1868.
+*) Lycurg. Leocr. 66. frg. 8. Demosth. 25, 98. schol. ad Dem. p. 47 ed. Turic. Dem. 18 ἑτ. ὑπόθ. 40. 19, 129. Aesch. 1, 60. 3, 187. schol. ad Aesch. p. 47, 4. 426, 6 in oratt. Atticis. Athen. 5, 214 C. 9, 407 C. Harpocr. s. v. Bekker anecd. gr. p. 280. Dinarch. 1, 86. frg. 24. C. I. A. 2, 404, 421, 551 etc. de Iuliano vide supra. cf. C. Curtium das metroon zu Athen als statsarchiv. 1868.
 
 *) Attamen Plinius 36, 17 censet opus fuisse Agoracriti, Phidiae discipuli cf. Brunn gesch. d. griech. künstler 1 p. 184 sq.
 
@@ -60,11 +60,11 @@ Quando cultus in Graeciam translatus sit, cognosci potest, si locum, qui extat a
 
 *) Lobeck Aglaoph. 2 p. 1139 not.
 
-Quamquam Athenienses cultu Matris Magnae reipublicae probato impedire studebant,* ne mysteria illa Phrygia acciperentur, tamen iam ex Demosthenis oratione 18, 260 ([GREEK]* Strab. 10, 3, 18) cognoscimus ea Athenas irrepsisse; nec multo post [GREEK] in Attica constituti sunt, quorum intererat eo magis a custodia reipublicae se liberare, quo minus oraculum delphicum cultui externo resisteret.*
+Quamquam Athenienses cultu Matris Magnae reipublicae probato impedire studebant,* ne mysteria illa Phrygia acciperentur, tamen iam ex Demosthenis oratione 18, 260 (εὐοῖ σαβοῖ ὑῆς ἄττης ὑῆς ἄττης* Strab. 10, 3, 18) cognoscimus ea Athenas irrepsisse; nec multo post [GREEK] in Attica constituti sunt, quorum intererat eo magis a custodia reipublicae se liberare, quo minus oraculum delphicum cultui externo resisteret.*
 
-*) Plut. amat. 13, 5: [GREEK] (cf. archäol. zeitung 38, 1880 p. 9 sq.).
+*) Plut. amat. 13, 5: οὐ δὲ ἔπηλυς ἔκ τινος βαρβαρικῆς δεισιδαιμονίας, ὥσπερ Ἄτται τινὲς καὶ Ἀδώνιοι λεγόμενοι, δι᾽ ἀνδρογύνων καὶ γυναικῶν παραδύεται καὶ κρύφα τιμὰς οὐ προσηκούσας καρπούμενος, ὥστε παρεισγραφῆς δίκην φεύγειν καὶ νοθείας τῆς ἐν θεοῖς (cf. archäol. zeitung 38, 1880 p. 9 sq.).
 
-*) Primus mentionem facit Attidis Theopompus poeta comicus, cuius verba ex fabula [GREEK] deprompta tradidit Suidas 1, 370 (cf. Meinek. frg. com. graec. 2, 2 p. 801): [GREEK].
+*) Primus mentionem facit Attidis Theopompus poeta comicus, cuius verba ex fabula Καπηλίδων deprompta tradidit Suidas 1, 370 (cf. Meinek. frg. com. graec. 2, 2 p. 801): κολάσομαί γέ σε καὶ τὸν Ἄττιν.
 
 *) C. I. A. 2, 610, 611 ?, 614, 618, 619, 621-624, 627, 842 ?. bull. de corr. hell. 7 p. 69 sq. ? Lueders die dionysischen künstler. Foucart des associations religieuses. C. Schaefer die privatgenossenschaften im Peiraieus in "jhrbb. f. klass. phiiologie v. 121 1880 p. 417 sq."
 
