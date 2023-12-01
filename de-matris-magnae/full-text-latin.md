@@ -279,17 +279,20 @@ Restant igitur tituli qui spectant ad quartum p. Chr. saeculum. ac primus quidem
 
 *) Cf. p. 47. tit. C. I. L. 8, 8457 Sitifensem non enumeravi in contextu, quia nobis valde mutilatus est traditus; erectus est anno prorinciae 249 i. e. a. 288 p. Chr. cf. Marqu. l. l. 1 p. 324.
 
-Quos titulos si accuratius inspexerimus, intellegemus plerosque positos esse a viris reipublicae Romanae illis temporibus clarissimis; itaque factum est, ut taurobolia crioboliaque his ipsis temporibus maxime florerent, praesertim cum imperatores subsecuti aut non resisterent iis, aut ea sacra probarent. etenim quamquam religioni Christianae Constantinus addictus erat, tamen Zosimus 2, 31 recte dicit eum nihil fecisse res divinas atque, etsi viri theologi nostrae aetatis hanc sententiam refutare conati sunt, equidem plane consentio cum Burckhardtio , qui de illo imperatore haec verba fecit (die zeit Constantins des grossen 2 p. 345): in einem genialen menschen, dem der ehrgeiz und die herrschsucht keine ruhige stunde gönnen, kann von Christentum und Heidentum, von bewusster religiosität und irreligiosität gar nicht die rede sein; ein solcher ist ganz wesentlich irreligiös, selbst wenn er sich einbilden sollte mitten in einer kirchlichen gemeinschaft zu stehn. Zosimus autem memoriae tradidit ab illo in extrema parte unius ex porticibus, quibus forum Byzantii inclusum erat, duas aedes exstructas esse collocato in altera simulacro Matris deum, quod Iasonis socii olim in monte Dindymo constituerant, idque ab eo mutatum esse, cum leones utrimque tolleret manuumque formam converteret: [GREEK]. nec multo post Zosimum paganitatis defensorem 1. Firmicus Maternus libellum "de errore profanarum religionum" composuit, quem Constantini filiis dicavit, quos admonuit ut tantae calamitatis errorem abicerent et studia mentis profanae tandem aliquando desererent. quomodo autem ille, qui c. 3 cultum Attidis explanare instituit, cultus orientales ortos esse censeat, apparet ex eo quod c. 13, 2 Serapin coniungit cum fabula illa Iosephi, cui, quia Sarrae pronepos fuerit, post mortem eius nomen [GREEK] inditum sit, et c. 3 hariolatur "Phryges, ut annuum sibi sacrorum ordinem facerent, mulieris divitis ac reginae suae amorem, quae fastus amati adulescentis tyrannice voluisset ulcisci, cum luctibus annuis consecrasse et iactavisse, aut ut satis iratae mulieri facerent aut ut paenitenti solacium quaererent, eum quem paulo ante sepelierant revixisse, et cum mulieris animus ex impatientia nimii amoris arderet, mortuo adulescenti templa fecisse." hoc quidem impetravit, ut a. 341 Constantius ediceret, ut sacrificiorum aboleretur insania (cod. Theodos. 16, 10, 2), atque a. 346, ut cuncti sacrificiis abstinerent et siquis aliquid forte huiusmodi perpetravisset gladio ultore sterneretur (cod. Theodos. 16, 10, 4). attamen cultus denuo renatus est Iuliano imperatore (a. 361-363), qui ut Matris deum, quam oratione quinta laudibus extulit,* sacra florerent summam operam navavit ita ut Callixenum bene de sacerdotiis meritum duplici et Demetris et Matris Magnae Pessinuntiae sacerdotio honoraret atque Arsacio Galatiae summo sacerdoti imperaret, ut Pessinuntis incolas ad Matrem Magnam colendam impelleret; dicit enim (ep. 49):
+Quos titulos si accuratius inspexerimus, intellegemus plerosque positos esse a viris reipublicae Romanae illis temporibus clarissimis; itaque factum est, ut taurobolia crioboliaque his ipsis temporibus maxime florerent, praesertim cum imperatores subsecuti aut non resisterent iis, aut ea sacra probarent. etenim quamquam religioni Christianae Constantinus addictus erat, tamen Zosimus 2, 31 recte dicit eum nihil fecisse res divinas atque, etsi viri theologi nostrae aetatis hanc sententiam refutare conati sunt, equidem plane consentio cum Burckhardtio , qui de illo imperatore haec verba fecit (die zeit Constantins des grossen 2 p. 345): in einem genialen menschen, dem der ehrgeiz und die herrschsucht keine ruhige stunde gönnen, kann von Christentum und Heidentum, von bewusster religiosität und irreligiosität gar nicht die rede sein; ein solcher ist ganz wesentlich irreligiös, selbst wenn er sich einbilden sollte mitten in einer kirchlichen gemeinschaft zu stehn. Zosimus autem memoriae tradidit ab illo in extrema parte unius ex porticibus, quibus forum Byzantii inclusum erat, duas aedes exstructas esse collocato in altera simulacro Matris deum, quod Iasonis socii olim in monte Dindymo constituerant, idque ab eo mutatum esse, cum leones utrimque tolleret manuumque formam converteret: κατέχειν γὰρ πάλαι δοκοῦσα τοὺς λέοντας νῦν εἰς εὐχομένης μεταβέβληται σχῆμα τὴν πόλιν ἐφορῶσα καὶ περιέπουσα. nec multo post Zosimum paganitatis defensorem 1. Firmicus Maternus libellum "de errore profanarum religionum" composuit, quem Constantini filiis dicavit, quos admonuit ut tantae calamitatis errorem abicerent et studia mentis profanae tandem aliquando desererent. quomodo autem ille, qui c. 3 cultum Attidis explanare instituit, cultus orientales ortos esse censeat, apparet ex eo quod c. 13, 2 Serapin coniungit cum fabula illa Iosephi, cui, quia Sarrae pronepos fuerit, post mortem eius nomen Σάρρας παῖς (Σάραπις) inditum sit, et c. 3 hariolatur "Phryges, ut annuum sibi sacrorum ordinem facerent, mulieris divitis ac reginae suae amorem, quae fastus amati adulescentis tyrannice voluisset ulcisci, cum luctibus annuis consecrasse et iactavisse, aut ut satis iratae mulieri facerent aut ut paenitenti solacium quaererent, eum quem paulo ante sepelierant revixisse, et cum mulieris animus ex impatientia nimii amoris arderet, mortuo adulescenti templa fecisse." hoc quidem impetravit, ut a. 341 Constantius ediceret, ut sacrificiorum aboleretur insania (cod. Theodos. 16, 10, 2), atque a. 346, ut cuncti sacrificiis abstinerent et siquis aliquid forte huiusmodi perpetravisset gladio ultore sterneretur (cod. Theodos. 16, 10, 4). attamen cultus denuo renatus est Iuliano imperatore (a. 361-363), qui ut Matris deum, quam oratione quinta laudibus extulit,* sacra florerent summam operam navavit ita ut Callixenum bene de sacerdotiis meritum duplici et Demetris et Matris Magnae Pessinuntiae sacerdotio honoraret atque Arsacio Galatiae summo sacerdoti imperaret, ut Pessinuntis incolas ad Matrem Magnam colendam impelleret; dicit enim (ep. 49):
 
-[GREEK].
+οὐ γάρ μοι θέμις ἐστὶ κομιζέμεν οὐδ᾽ ἐλεαίρειν  
+ἀνέρας, οἵ κε θεοῖσιν ἀπέχθωντ᾽ ἀθανάτοισιν.  
+πείθε τοίνυν αὐτούς, εἰ τῆς παρ᾽ ἐμοῦ κηδεμονίας ἀντέχονται,  
+πανδημεὶ τῆς Μητρὸς τῶν θεῶν ἱκέτας γενέσθαι.
 
 *) Cf. cap. 4. de Cerealibus vide Friedlaender. ap. Marquardt. l. l. 3 p. 479.
 
-*) Cf. p. 232 ed. Hertlein: [GREEK]. Amm. Marc. 22. 9, 5-8. Libanius in orat. consulari p. 247 et in monodia de Iuliani obitu p. 254.
+*) Cf. p. 232 ed. Hertlein: ὦ θεῶν καὶ ἀνθρώπων μῆτερ..., ὦ πάντων μὲν ἀγαθῶν τοῖς νοεροῖς ἡγδυμένη θεοῖς, πάντων δὲ ἀποπληροῦσα τὸν αἰσθητὸν κόσμον, πάντα δὲ ἡμῖν ἐν πᾶσιν ἀγαθὰ χαρισαμένη, δίδου πᾶσι μὲν ἀνθρώποις εὐδαιμονίαν, ἧς τὸ κεφάλαιον ἡ τῶν θεῶν γνῶσίς ἐστι κτλ. Amm. Marc. 22. 9, 5-8. Libanius in orat. consulari p. 247 et in monodia de Iuliani obitu p. 254.
 
 Quo mortuo praecipue Theodosius* (a. 379-395) religiones paganas funditus evertere conatus est; quamquam ipsius temporibus viri praeclarissimi Symmachus* (cos. a. 391), Vettius Agorius Praetextatus* († cos. designatus a. 385), Virius Nicomachus Flavianus* (cos. a. 394) cultui pagano dediti erant. in quos invehitur anonymus auctor carminis codicis Parisini n. 8084, quod a Mommseno in Hermae vol. 4 publici iuris optime factum hac aetate compositum est.
 
-*) Cod. Theod. 16, 7, 1. 10, 7. 10. 11. 12. Symm. epp. 10, 61. Liban. [GREEK]. Socrat. hist. eccl. 5, 16. Zosim. 4, 33. 37. 59.
+*) Cod. Theod. 16, 7, 1. 10, 7. 10. 11. 12. Symm. epp. 10, 61. Liban. ὑπὲρ τῶν ἱερῶν. Socrat. hist. eccl. 5, 16. Zosim. 4, 33. 37. 59.
 
 *) Laudat. in Valentinianum 2 (monum. Germ. h. auctt. antiquiss. 6, 1 ed. O. Seeck.): quanto parcior vestri numinis cultus est quam deorum! illis singula templa fundantur et sua cuique locantur altaria. inde ut arbitror maluerunt dispares ritus, ne in consortium cogerentur: nulli cum altero fas est dicaro pulvinar; hunc phrygius antistes placat, hunc pontifex; illas castae matres tuentur aras, has infulata virgo custodit; sumpserunt nomina diversa tot flamines, no possent dis pluribus esso communes. ipsas nobilium divisere gentes: Pinarios Hercules occupavit, Idaea Mater legit hospites Scipiones, Veneriis sacris famulata est domus Iulia.
 
@@ -359,59 +362,59 @@ Deinde de cognominibus, quae Matri Magnae indita sunt a scriptoribus et in nummi
 
 *) Be cognominibus, quae insunt in titulis cf. indicem s. v. Mater Magna.
 
-[GREEK] Strabo 10, 469. Diog. 50. 6, 1. Lucian. amor. 42. [GREEK] Arr. tact. 33, 4. dea Phrygia Verg. Ae. 7, 39. mater Phrygia Arnob. 2, 73. [GREEK] Iulian. epp. 21.
+θεὰ Φρυγία Strabo 10, 469. Diog. 50. 6, 1. Lucian. amor. 42. ἡ Φρυγία δαίμων Arr. tact. 33, 4. dea Phrygia Verg. Ae. 7, 39. mater Phrygia Arnob. 2, 73. ἡ μεγίστη Μήτηρ θεὰ ἡ Φρυγία Iulian. epp. 21.
 
-[GREEK] (Idaea) Strabo 1, 45. 10, 469. Eur. Or. 1453. Apoll. Rhod. 1, 1128. Dion. H. 2, 19. Verg. Ae. 10, 252. Lucret. 2, 611. Liv. 29, 10. Hygin. fab. Hesych. s. v. Apul. met. 8, 25 (ed. Eyssenh.).
+Ἰδαία (Idaea) Strabo 1, 45. 10, 469. Eur. Or. 1453. Apoll. Rhod. 1, 1128. Dion. H. 2, 19. Verg. Ae. 10, 252. Lucret. 2, 611. Liv. 29, 10. Hygin. fab. Hesych. s. v. Apul. met. 8, 25 (ed. Eyssenh.).
 
-[GREEK] (Dindymene) Strabo 10, 469. Herod. 1, 80. Paus. 7, 17, 5. Apoll. Rh. 1, 1125. Hor. od. 1, 16, 5. Martial. 8, 81.
+Δινδυμήνη (Dindymene) Strabo 10, 469. Herod. 1, 80. Paus. 7, 17, 5. Apoll. Rh. 1, 1125. Hor. od. 1, 16, 5. Martial. 8, 81.
 
-[GREEK] Strabo 10, 469. Eckhel d. n. v. 2, 534.
+Σιπυληνή Strabo 10, 469. Eckhel d. n. v. 2, 534.
 
-[GREEK] Strabo 10, 469.
+Ἀσπορ[δ]ηνή Strabo 10, 469.
 
 Berecyntia mater (deum genetrix) Verg. Ae. 6, 784. Arnob. 5, 9. 13. Ovid. f. 4, 335. August. d. civ. d. 2, 4. carmen cod. Paris. 8084 v. 73 (Herm. 4, 356).
 
-[GREEK] Nic. Alex. 7 et schol.
+Λοβρίνη Nic. Alex. 7 et schol.
 
-[GREEK] Herod. 1. 11, 3. Strabo. 10, 469. Pessinuntia Apul. met. 10, 5 ed. Eyssenh. Pessinuntia Dindymene Arnob. 4, 35. cf. Mionnet. 4, 391.
+Πεσσινουντία Herod. 1. 11, 3. Strabo. 10, 469. Pessinuntia Apul. met. 10, 5 ed. Eyssenh. Pessinuntia Dindymene Arnob. 4, 35. cf. Mionnet. 4, 391.
 
-[GREEK] Paus. 5, 13, 4.
+Πλακιανή Paus. 5, 13, 4.
 
-[GREEK] Steph. Byz. s. v. Strabo 13, 614.
+Ἀνδειρηνή Steph. Byz. s. v. Strabo 13, 614.
 
 Mygdonia Val. Flacc. 2, 46.
 
 Mater Iliaca Prudent. c. Symm. 1, 629.
 
-[GREEK] Theodor. Therap. serm. 1. cf. Orph. Arg. v. 16 sq.
+Βριμώ Theodor. Therap. serm. 1. cf. Orph. Arg. v. 16 sq.
 
-[GREEK] Arrian. peripl. 9.
+θεὰ Φασιανή Arrian. peripl. 9.
 
 Cybeleia mater Ovid. Ib. 453.
 
 Mater deum salutaris Cohen 2 2 p. 431.
 
-[GREEK] Apoll. Rh. 1, 1141.
+ἀνταία δαίμων Apoll. Rh. 1, 1141.
 
-[GREEK] Hesych. s. v. Etymol. m. s. v. Orph. hymn. 41, 1.
+ἀνταία μήτηρ Hesych. s. v. Etymol. m. s. v. Orph. hymn. 41, 1.
 
-[GREEK] Iul. or. 5 p. 180 (ed. Hertl.).
+ζωογόνος Iul. or. 5 p. 180 (ed. Hertl.).
 
-caelicolum genetrix cf. Sil. Ital. 17, 3; de voce "[GREEK]" cf. p. 4 adn. 1, de voce "mater deum conservatrix" p. 17, de voce "Mater turrita" p. 46. deinde tituli C. I. A. 2, 134-137, ubi Mater Magna [GREEK] appellatur, nos docent eam etiam morbos sanavisse. attamen quid significet nomen "Mater Magna Cognationis," quod in duobus titulis Salonis rep. extat (archäol. epigr. mitt. aus Östr. 8 p. 111), nescio.
+caelicolum genetrix cf. Sil. Ital. 17, 3; de voce "Μήτερ Ὀρεία" cf. p. 4 adn. 1, de voce "mater deum conservatrix" p. 17, de voce "Mater turrita" p. 46. deinde tituli C. I. A. 2, 134-137, ubi Mater Magna εὐάντητος ἰατρείνη appellatur, nos docent eam etiam morbos sanavisse. attamen quid significet nomen "Mater Magna Cognationis," quod in duobus titulis Salonis rep. extat (archäol. epigr. mitt. aus Östr. 8 p. 111), nescio.
 
 Quod pertinet ad Attidis cognomina, haec adnotatione digna mihi esse videntur:
 
 Berecyntius Attis Pers. sat. 1, 93.
 
-[GREEK] Herod. 4, 59. hymn. in Attin. Diod. 3, 58, 4. Eustath. in Hom. 2. [GREEK], 408.
+Πάπ(π)ας Herod. 4, 59. hymn. in Attin. Diod. 3, 58, 4. Eustath. in Hom. 2. ε, 408.
 
-[GREEK] Iulian. or. 5 p. 168 C. 169 C.
+βασιλεὺς Ἄττις Iulian. or. 5 p. 168 C. 169 C.
 
-[GREEK] Iul. l. l. p. 171 C. atque in titulis nominatur Attis Menotyrannus ([GREEK]), quia idem est ac Sol.*
+ὑπουργὸς τῇ Μητρὶ καὶ ἡνίοχος Iul. l. l. p. 171 C. atque in titulis nominatur Attis Menotyrannus (Μηνὸς-τύραννος), quia idem est ac Sol.*
 
-*) C. I. G. 3439 [GREEK] logitur. Macrob. sat. 1, 21. Arnob. 5, 42. Stuhr l. l. p. 130. Jhrbb. d. ver. v. altertumsfr. i. Rheinl. 23 p. 53 sq. Lebas-Wadd. l. l. 3 adn. ad n. 668. Maurer de aris Graecorum pluribus deis in commune positis. Darmstadii 1885 p. 103. Cybele quoque lunae domina habita esse videtur quia in prostypo (archäol. epigr. mitt. aus Östr. 1, 1877 p. 14 tab. 3) lunae falx in capite conspicitur.
+*) C. I. G. 3439 Ζεὺς Μηνιτύραννος logitur. Macrob. sat. 1, 21. Arnob. 5, 42. Stuhr l. l. p. 130. Jhrbb. d. ver. v. altertumsfr. i. Rheinl. 23 p. 53 sq. Lebas-Wadd. l. l. 3 adn. ad n. 668. Maurer de aris Graecorum pluribus deis in commune positis. Darmstadii 1885 p. 103. Cybele quoque lunae domina habita esse videtur quia in prostypo (archäol. epigr. mitt. aus Östr. 1, 1877 p. 14 tab. 3) lunae falx in capite conspicitur.
 
-Nunc vero breviter exponam, quomodo scriptores posterioris aetatis et philosophi et patres ecclesiastici fabulam Matris Magnae et Attidis interpretati sint. Iulianus autem in or. 5 p. 161 D. et Sallustius de natura deorum 4* putant ea ostendi, quomodo anima de coelo ad corpus humanura deveniat atque postremo ad deos redeat, aut quoniam ambo student philosophiae, quam novam Platonicam nominamus, ea per allegoriam significari, quomodo numen divinum paulatim atque gradatim usque ad materiem, quae [GREEK] appellatur, descendat rursusque ea ascendat ad sublimiora.* aliquanto ante aliter explicavit fabulam Porphyrius ap. Euseb. praep. ev. 3, 7 sic: [GREEK]; quem secuti sunt Lactantius inst. d. 1, 17, Iul. Firm. Maternus 3, 5, Augustinus de civ. dei 7, 25. 2, 4. 6, 8 (cf. C. I. L. 6, 509 = Kaibel epigr. gr. 824). quo loco etiam commemorabo Isidem, cuius cultus haud scio an maxime floruerit in toto orbe terrarum Romano, cum Matre Magna aequari ab Apuleio met. 11, 5; ac si inscriptiones pervestigamus, interdum Mater Magna cum ea coniungitur,* quod mea quidem sententia inde explanatur, quod unaquaeque Mater deum Romanis esse videbatur.
+Nunc vero breviter exponam, quomodo scriptores posterioris aetatis et philosophi et patres ecclesiastici fabulam Matris Magnae et Attidis interpretati sint. Iulianus autem in or. 5 p. 161 D. et Sallustius de natura deorum 4* putant ea ostendi, quomodo anima de coelo ad corpus humanura deveniat atque postremo ad deos redeat, aut quoniam ambo student philosophiae, quam novam Platonicam nominamus, ea per allegoriam significari, quomodo numen divinum paulatim atque gradatim usque ad materiem, quae ἵλη appellatur, descendat rursusque ea ascendat ad sublimiora.* aliquanto ante aliter explicavit fabulam Porphyrius ap. Euseb. praep. ev. 3, 7 sic: Ἄττις δὲ καὶ Ἄδωνις τῆς τῶν καρπῶν εἰσι ἀναλογίᾳ προσήκοντες ἀλλ᾽ ὁ μὲν Ἄττις τῶν κατὰ τὸ ἕαρ προφαινομένων ἀνθέων καὶ πρὶν τελεσιγονῆσαι διαρρεόντων --- ἔνθεν καὶ τὴν τῶν αἰδοίων ἀποκοπὴν αὐτῷ προσανέθεσαν μὴ φθασάντων ἐλθεῖν τῶν καρπῶν εἰς τὴν σπεῥματικὴν τελείωσιν --- ὁ δὲ Ἄδωνις τῆς τῶν τελείων καρπῶν ἐκτομῆς σύμβολον; quem secuti sunt Lactantius inst. d. 1, 17, Iul. Firm. Maternus 3, 5, Augustinus de civ. dei 7, 25. 2, 4. 6, 8 (cf. C. I. L. 6, 509 = Kaibel epigr. gr. 824). quo loco etiam commemorabo Isidem, cuius cultus haud scio an maxime floruerit in toto orbe terrarum Romano, cum Matre Magna aequari ab Apuleio met. 11, 5; ac si inscriptiones pervestigamus, interdum Mater Magna cum ea coniungitur,* quod mea quidem sententia inde explanatur, quod unaquaeque Mater deum Romanis esse videbatur.
 
 *) Mater itaque deorum vivifica dea est ideoque Mater vocatur: Attis eorum quae fiunt et corrumpuntur artifex; huic apud Gallum flumen compertus traditur. Gallus enim Galaxiam seu lacteum orbem, unde corpus passionibus obnoxium descendit, indicat. primis autem diis secundos perficientibus Mater Attidis amore correpta caelestes illi facultates largitur: is enim pileus est. Attis autem Nympham deperit: cum Nymphae generationi praesint; nam quodcumque fit, fluit. quoniam vero generatio sistenda erat, ne extrema semper deterius progignerent, ea molitus opifex facultates ad generandum fecundas dimittens iterum cum diis coniungitur. et haec quidem numquam facta sunt, cum semper sint et mens quidem omnia simul conspicit; at sermo haec quidem prius, illa posterius effert. hac ratione cum aptissime mundo fabula respondeat, nos quanam alia ratione nitidius ornaremur quam mundum imitantes? propter illa festum diem agimus. et primum sane ipsi e coelo delapsi et cum Nympha consuescentes in maerore vivimus a frumento alioque crasso et sordido cibo abstinentes, quandoquidem utraque animo sunt contraria. deinceps arboris incisiones et ieiunium, quasi nos ipsi ulteriorom generationis progressum amputaremus: tandem ex lacte alimentum, quasi renasceremur. hinc festivitates (hilaria) et coronae et ad deos veluti reditio. hisce et tempus, quo fiunt, testimonium exhibet; circa enim veris aequinoctium ea quae diximus conficiuntur, cum quae fiunt fieri cessant, diesque nocte magis ac magis protenditur: quod animis, qui ad sublimiora gradum faciunt, proprium est. sic circa oppositum aequinoctium raptus Proserpinae successisse fingitur, qui descensus ost animorum.
 
@@ -419,21 +422,25 @@ Nunc vero breviter exponam, quomodo scriptores posterioris aetatis et philosophi
 
 *) C. I. L. 5, 4007 cf. Wilmanns. ex. 2088. C. I. L. 9, 1153. 6099. Lafaye l'histoire du culte des divinités d'Alexandrie Isis etc. 1884 p. 276 n. 40.
 
-Sed ad alia transeamus. Lucianus quod Pseudol. 11 dicit: [GREEK]; (Mart. 8, 81 non per mystica sacra Dindymenes... iurat Gellia), hoc per se intellegitur. attamen maioris est momenti, quod nomen Matris deum invenitur in oraculo talario,* quod Attaliae repertum edidit Kaibel Herm. vol. 10 p. 193 sq. et epigr.gr. n. 1038. scimus patres ecclesiasticos cupidinem sortis ex talis cognoscendae, qui in aris deorum positi erant (Paus. 7, 25, 6. Pind. Pyth. 4, 337), acriter castigasse. leguntur autem in hoc oraculo, in quo quinque tantum tali adhibiti sunt, quibus numeri 2 et 5 deerant, n. 9 haec:
+Sed ad alia transeamus. Lucianus quod Pseudol. 11 dicit: εἰπὲ γάρ μοι πρὸς πανδήμου καὶ Γενετιλλίδων καὶ Κυβήβης, πῆ σοι μεμπτὸν καὶ γέλωτος ἄξιον τοὔνομα εἶναι ἔδοξεν ἡ ἀποφράς; (Mart. 8, 81 non per mystica sacra Dindymenes... iurat Gellia), hoc per se intellegitur. attamen maioris est momenti, quod nomen Matris deum invenitur in oraculo talario,* quod Attaliae repertum edidit Kaibel Herm. vol. 10 p. 193 sq. et epigr.gr. n. 1038. scimus patres ecclesiasticos cupidinem sortis ex talis cognoscendae, qui in aris deorum positi erant (Paus. 7, 25, 6. Pind. Pyth. 4, 337), acriter castigasse. leguntur autem in hoc oraculo, in quo quinque tantum tali adhibiti sunt, quibus numeri 2 et 5 deerant, n. 9 haec:
 
-[GREEK]
+[SVG] K E Μητρὸς θεῶν
+
+ὡ]ς ἄρνα[ς] κα[τ]έχουσι λύκοι κρατεροί τε λέοντ[ες  
+β]οῦς ἕλικας, πάντων τούτων καὶ σὺ κράτ[ος ἕξεις*  
+καὶ πάντ᾽ ἔστε σ[ο]ὶ ὅσα ἐπ[ει]ρώτως σὺ [SVG]
 
 atque profecto non modo in oraculo talario extat nomen Matris deum, sed etiam in carmine, quod ex Apulei cuiusdam libello traditum in Geoponicis (ed. Niclas 1781) 13, 5, 4 legitur: [GREEK].*
 
 *) Similia oracula reperies C. I. G. 4310. 4379. 3956 c ? cf. Stuhr l. l. p. 483. de ludo talario apud Romanos egit in universum Friedlaender darstell. aus d. röm. sittengesch. 5 1 p. 376 sq.
 
-*) [GREEK] restituit Kaibel ex Philostorg. h. eccl. 7, 15 [GREEK] (Iulianus) [GREEK].
+*) κράτος ἕξεις restituit Kaibel ex Philostorg. h. eccl. 7, 15 τοῖς πανταχόθεν χρησμοῖς τῶν Ἑλλήνων ὁ παραβάτης (Iulianus) ἀναπεισθεὶς ὡς ἄμαχον ἕξει τὸ κράτος κτλ.
 
 *) Cf. Marquardt. l. l. 3 p. 107 adn. 7.
 
-Denique restat ut hoc capite disputem, quomodo Cybele et Attis ab artificibus fingantur atque quae res iis sacrae sint. sacra autem erat Matri Magnae pinus, sub qua Attidem sibi desecuisse genitalia fabula narrat; cum vero Probus ad Vergilii G. 2, 84 dicat cupressum ei sacram fuisse, inde hoc explicandum est, quod Mater Magna coniungitur cum Rhea Cretensi, qua in insula illa arbor imprimis floruit. contra Aeliani verba: [GREEK] sc. [GREEK] (de anim. 12, 4) dubia mihi esse videntur, quoniam nusquam alibi hoc traditur neque in imaginibus haec avis ei tribuitur.
+Denique restat ut hoc capite disputem, quomodo Cybele et Attis ab artificibus fingantur atque quae res iis sacrae sint. sacra autem erat Matri Magnae pinus, sub qua Attidem sibi desecuisse genitalia fabula narrat; cum vero Probus ad Vergilii G. 2, 84 dicat cupressum ei sacram fuisse, inde hoc explicandum est, quod Mater Magna coniungitur cum Rhea Cretensi, qua in insula illa arbor imprimis floruit. contra Aeliani verba: Μητρὶ δὲ θεῶν τὸν μέρμνον sc. προσνέμουσι (de anim. 12, 4) dubia mihi esse videntur, quoniam nusquam alibi hoc traditur neque in imaginibus haec avis ei tribuitur.
 
-Ceterum saepe finxerunt Cybelen veteres non solum Romani, sed etiam Graeci;* nam Phidia (vel Agoracrito) Damophonte exceptis Nicomachus quarto saeculo exeunte eam in leone sedentem pinxit. leones autem semper fere Matris deum comites sunt, quapropter in anthol. Palatina ed. Duebner 1, 201 [GREEK] nominatur; atque rectissime de Vogüé haec adnotat (mélanges d'archéolog. orientale p. 45): la grande déesse Syrienne de Hiérapolis, la déesse Phrygienne des basreliefs de Tjazikeni, la Rhéa-Cybele mère des dieux, Vénus-Uranie de Phrygie et d'Asie-Mineure, la Tanit ou Artémis Céleste de Carthage, la Junon que Diodore associe à Juppiter Baal dans le temple de Bel à Babylone, l'Atergatis Syrienne, l'Anaïtis des cylindres Assyro-Chaldéens: toutes ces divinit6s ont pour caractéristique d'être portées par le lion.
+Ceterum saepe finxerunt Cybelen veteres non solum Romani, sed etiam Graeci;* nam Phidia (vel Agoracrito) Damophonte exceptis Nicomachus quarto saeculo exeunte eam in leone sedentem pinxit. leones autem semper fere Matris deum comites sunt, quapropter in anthol. Palatina ed. Duebner 1, 201 θρέπτειρα λεόντων nominatur; atque rectissime de Vogüé haec adnotat (mélanges d'archéolog. orientale p. 45): la grande déesse Syrienne de Hiérapolis, la déesse Phrygienne des basreliefs de Tjazikeni, la Rhéa-Cybele mère des dieux, Vénus-Uranie de Phrygie et d'Asie-Mineure, la Tanit ou Artémis Céleste de Carthage, la Junon que Diodore associe à Juppiter Baal dans le temple de Bel à Babylone, l'Atergatis Syrienne, l'Anaïtis des cylindres Assyro-Chaldéens: toutes ces divinit6s ont pour caractéristique d'être portées par le lion.
 
 *) De simulacris Matris Magnae Graecis inspiciendae sunt commentationes Conzii Hermes-Kadmilos in archäol. ztg. 1880 p. 1-10, Koertii die antiken skulpturen aus Böotien in mitt. d. d. arch. inst. z. Athen 3 p. 329 sq., L. Gurlittii votivrelief an die göttermutter in arch. ztg. 1880 p. 187, Stephanii der ausruhende Herakles p. 68, Curtii-Kauperti atlas v. Athen blatt 8, 1.
 
