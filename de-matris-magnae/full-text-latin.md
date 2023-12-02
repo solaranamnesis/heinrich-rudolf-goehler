@@ -1302,7 +1302,7 @@ Inscriptiones graecae.
 
 Φοῖβος C. I. G. 6012 c.
 
-2\. Sacerdotes, sacerdotia, sacra.
+## 2\. Sacerdotes, sacerdotia, sacra.
 
 ἀρχιέρεια C. I. G. 3508. 3953.
 
