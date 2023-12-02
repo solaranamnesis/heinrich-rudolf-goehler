@@ -825,7 +825,16 @@ Quoniam vero non nisi sacerdotum muneribus cognitis explanari potest, quomodo di
 
 Deinde sacris Romae acceptis Megalesia instituta sunt cf. fastos Praenestinos (C. I. L. 1 p. 316) ad 4 diem mensis Aprilis: ludi Matris deum Idaeae Megalensia vocantur, quod ea dea Migale appellatur. nobilium mutitationes cenarum solitae sunt frequenter fieri, quod Mater Magna ex libris Sibullinis arcessita locum mutavit cx Phrygia Romam (Ovid. 7. 4, 352 sq. Gellius 18, 2, 11. 2, 24, 2). recte profecto conclusit Mommsenus ad C. I. L. 1 p. 389, cum Ovidius f. 4, 337 sq. et menologium rusticam lavationis solius mentionem faciant, reliquos dies festos posteriore aetate inter publica Romanorum sacra receptos esse. describit autem Ovidius l. l. lavationem hisce verbis:
 
-est locus, in Tiberim qua lubricus influit Almo  et nomen magno perdit ab amne minor.  illic purpurea canus cum veste sacerdos.  Almonis dominam sacraque lavit aquis,  exululant comites furiosaque tibia flatur  et feriunt molles taurea terga manus.  Claudia praecedit laeto celeberrima voltu  credita vix tandem teste pudica dea.  ipsa sedens plaustro porta est invecta Capena;  sparguntur iunctae flore recente boves.
+est locus, in Tiberim qua lubricus influit Almo  
+et nomen magno perdit ab amne minor.  
+illic purpurea canus cum veste sacerdos.  
+Almonis dominam sacraque lavit aquis,  
+exululant comites furiosaque tibia flatur  
+et feriunt molles taurea terga manus.  
+Claudia praecedit laeto celeberrima voltu  
+credita vix tandem teste pudica dea.  
+ipsa sedens plaustro porta est invecta Capena;  
+sparguntur iunctae flore recente boves.
 
 atque ludi Megaleses paulo post (a. u. c. 560) Romae peracti sunt a die 4 m. Aprilis usque ad diem 10, intermisso die 8 Castoris et Pollucis natali, primi C. Atilio Serrano et L. Scribonio Libone aedilibus. quibus plurimas Terentii fabulas actas esse notum est (Ritschl parerga 294 sq.) atque etiam ex verbis Arnobii 7, 33. 4, 34 5, 42 conicere licet fabulam Claudiae illis diebus spectaculo fuisse.
 
