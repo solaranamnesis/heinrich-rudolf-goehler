@@ -634,9 +634,9 @@ Q. Honoratus C. I. L. 8, 5707.
 
 C. Aemilius Saturninus C. I. L. 8, 8203.
 
-fortasse etiam... elsinius Capitolinus ex aede Bellonaes Pulvinesis fanaticus Matris deum C. I. L. 6, 490 inter eos numerandus est.* unus tantum relinquitur titulus C. I. G. 6206, quo haec legimus: [GREEK]. languescere autem mihi videtur coniectura Garrucci (mélanges d'archéologie et d'histoire 4, 1856), qui scribendum censet [GREEK] pro [GREEK]. admonet igitur Aurelius Antonius omnes sive mystas sive cuiuscunque vitae generis profanos (ut Welckeri verbis utar), ut plane se dederent mysteriis; qua in re hoc certe mirandum est, quod puer septennis non solum Bonadiae et Matris deum et Dionysi et Bacchi, cum recte Kaibel epigr. gr. 823 [GREEK] sic explicaverit: [GREEK], mysteriis initiatus sit, sed etiam eorundem sacerdos fuerit.
+fortasse etiam... elsinius Capitolinus ex aede Bellonaes Pulvinesis fanaticus Matris deum C. I. L. 6, 490 inter eos numerandus est.* unus tantum relinquitur titulus C. I. G. 6206, quo haec legimus: κεῖμαι Αὐρήλιος Ἀντώ/νιος ὁ καὶ ἱερεὺς τῶν τε/θεῶν πάντων πρῶτον Βονα/δίης εἶτα Μητρὸς θεῶν καὶ Διο/νύσου καὶ Ἡγεμόνος τούτοις/ἐκτελέσας μυστήρια πάντοτε/ σεμνῶς, νῦν ἔλιπον σεμνὸν/γλυκερὸν φᾶος ἠελίοιο · λοιπὸ/ν μύσται εἴτε φίλοι βιότητος ἑ/κάστης πάνθ᾽ ὑπολανθάνετε τὰ/βίου συνεχῶς μυστήρια σεμνά · /οὐδεὶς γὰρ δύναται μοῖρον μί/του* ἐξαναλῦσαι./ἕζησον γὰρ ἐγὼ Ἀντώνιος οὔ/τος ὁ σεμνὸς ἕτεσιν ζ ἡμέραι/σιν ιβ./ἐποίησαν Αὐρηλείὰ Ἀντωνεία καὶ Αὐ/ρήλιος Ὀνήσιμος γλυκυτάτῳ τέκνῳ/μνήμης χάριν./θ(εοῖς) χ(θονίοις). languescere autem mihi videtur coniectura Garrucci (mélanges d'archéologie et d'histoire 4, 1856), qui scribendum censet ὑπολαμβάνετε pro ὑπολανθάνετε. admonet igitur Aurelius Antonius omnes sive mystas sive cuiuscunque vitae generis profanos (ut Welckeri verbis utar), ut plane se dederent mysteriis; qua in re hoc certe mirandum est, quod puer septennis non solum Bonadiae et Matris deum et Dionysi et Bacchi, cum recte Kaibel epigr. gr. 823 Ἡγεμών sic explicaverit: Ἴακχος ἀρχηγέτης τῶν μυστηρίων τῆς Δήμητρος, mysteriis initiatus sit, sed etiam eorundem sacerdos fuerit.
 
-*) Lapicidae incuriae debetur haec scriptura; [GREEK] legimus etiam in titulo, qui publici iuris factus est in "archäol. ztg. 1875" p. 148.
+*) Lapicidae incuriae debetur haec scriptura; Μοιρῶν μίτον legimus etiam in titulo, qui publici iuris factus est in "archäol. ztg. 1875" p. 148.
 
 Inter sacerdotes feminas respondet illi sacerdoti maximo C. I. L. 6, 508 sacerdos maxima C. I. L. 6, 502, ex quo titulo, etsi nomen iam non legitur, luculenter apparet eam fuisse filiam viri clarissimi. alteram autem sacerdotem maximam habemus in tit. C. I. L. 6, 2257, cui nomen est Laberia Felicia. praeterea extant haec nomina:
 
@@ -710,7 +710,7 @@ C. Caesius Eutychion immunis cannophorus Ostiensis Ann. Inst. 40 p. 390 n. 3.
 
 Q. Domitius Aterianus pater et Domitia Civitas mater signum Attis cannophoris Ostiensibus dederunt (Ann. Inst. 40 p. 391 n. 6), qui titulus docet cannophoris quoque praefuisse patrem et matrem.
 
-Tum commemoratur cernophorarum ([GREEK] = patera) munus, quod in sacris Corybanteis a viris expletum est, in tit. C. I. L. 2, 179 Hispaniensi, quo functa est Flavia Tyche, et in tit. C. I. L. 10, 1803, quem posuit pater Heriae Victorinae cernophorae filiae dulcissimae (cf. Mommsenum ad C. I. L. 1 p. 391).
+Tum commemoratur cernophorarum (κέρνον = patera) munus, quod in sacris Corybanteis a viris expletum est, in tit. C. I. L. 2, 179 Hispaniensi, quo functa est Flavia Tyche, et in tit. C. I. L. 10, 1803, quem posuit pater Heriae Victorinae cernophorae filiae dulcissimae (cf. Mommsenum ad C. I. L. 1 p. 391).
 
 Sequuntur hymnologi, quos Graeca lingua usos deorum laudes cum iactantia et ostentatione decantasse dicit 1. Firm. Maternus math. 3, 6. illi quidem in classes divisi erant, quod manifestum est ex titulo anno proximo allato (bulletino dell' i. d. c. a. di Roma a. 1884 p. 154 sq.), quem Amerimnus libertus Ti. Claudio Veloci hymnologo primo Matris deum Idaeae et Attinis publico dedicavit. eodem modo diversae classes fuerunt cymbalistriarum et tympanistriarum, quae musicam curaverunt in sacris:
 
@@ -724,7 +724,7 @@ Secundilla cymbalistria C. I. L. 5, 519.
 
 Ex tibicinibus autem unus tantum nobis occurrit in titulis tauroboliacis Lugdunensibus (Boiss. p. 31. 33. 36) Flavius Restitutus aeque atque unus haruspex publicus primarius: Flavius Liberalis C. I. L. 9, 1540 et duo apparatores Vireius Hermetio in tit. tauroboliaco Lugdunensi (Boiss. p. 36) et C. Atilius Bassi sacerdotis libertus Felix (ann. inst 40 p. 375). num vero ille mysticus* Publicius, quem nominat titulus ephem. epigr. 3, 2, ad collegium sacerdotum Matris Magnae pertineat, aut tantummodo unus ex iis sit, qui sacris initiati erant, dubium est.
 
-*) [GREEK], qui nominantur C. I. G. 6206 certe sacris initiati erant et verba [GREEK] et [GREEK] C. I. L. 6, 509 et C. I. G. 6012 c spectant ad sacra tauroboliaca.
+*) Μύσται, qui nominantur C. I. G. 6206 certe sacris initiati erant et verba μυστιπόλος et ἤματα μυστιπόλα C. I. L. 6, 509 et C. I. G. 6012 c spectant ad sacra tauroboliaca.
 
 Sed infimum habuerunt gradum aeditui C. Publicius Hermes C. I. L. 5, 519 et Cosmus Orelli 2984, porro apparitor Caius Ianuarius Orelli 1896 et Acca L. f. Prima ministra Matris Magnae C. I. L. 9, 3146, quae Matrem refecit Magnam et inauravit et Attini comam inauravit et Bellonam refecit.
 
@@ -740,7 +740,7 @@ C. Iulius Epaenitus C. I. L. 9, 734.*
 
 *) Num tit. C. I. L. 10, 1894, quo ager religiosorum nominatur, ad M. M. religiosos referendus sit, in dubium vocatur.
 
-huc spectant etiam sodales ballatores ([GREEK]) Cybelae C. I. L. 6, 2265.
+huc spectant etiam sodales ballatores (Βαλλίζειν) Cybelae C. I. L. 6, 2265.
 
 Cultu vero longe lateque divulgato opus erat eum ab uno collegio administrari; et quamquam verisimile est primum pontifices ei praefuisse atque ad eos de rebus sacris Matris Magnae (cf. Liv. 29, 8. 19-21. 31, 12 38, 44) esse relatum, tamen circa Tiberii aetatem 15 viris imperatum est, ut providerent cultui peregrino.* sacerdotes autem ab iis occabo et corona induebantur (Boiss. p. 24) atque in tit. C. I. L. 10, 3698, quo Cumis in locum Restituti sacerdotis mortui a decurionibus L. Secundus sacerdos fit, tradita est nobis epistula, qua 15 viri haec illis rescribunt:
 
