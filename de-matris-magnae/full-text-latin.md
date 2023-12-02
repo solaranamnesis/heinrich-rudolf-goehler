@@ -456,7 +456,16 @@ Ceterum saepe finxerunt Cybelen veteres non solum Romani, sed etiam Graeci;* nam
 
 Quomodo Romani Matrem Magnam effinxerint, optime perspiciemus, si simulacra explanabimus Lucretii verbis antea allatis. dicit enim l. 2 v. 600 sq.:
 
-hanc veteres Graium docti cecinere poetae sublimem in curru biiugos agitare leones: aeris in spatio magnam pendere docentes tellurem; neque posse in terra sistere terram. adiunxere feras, quia quamvis effera proles officiis debet molliri victa parentum. muralique caput summum cinxere corona, eximiis munita locis quod sustinet urbeis: quo nunc insigni per magnas praedita terras horrifice fertur divinae matris imago.*
+hanc veteres Graium docti cecinere poetae  
+sublimem in curru biiugos agitare leones:  
+aeris in spatio magnam pendere docentes  
+tellurem; neque posse in terra sistere terram.  
+adiunxere feras, quia quamvis effera proles  
+officiis debet molliri victa parentum.  
+muralique caput summum cinxere corona,  
+eximiis munita locis quod sustinet urbeis:  
+quo nunc insigni per magnas praedita terras  
+horrifice fertur divinae matris imago.*
 
 *) Albericus de deorum imagine c. 12: „cui (Cybelae) antiqui philosophi talem imaginem depinxerunt. erat enim virgo femina in curru sedens lapidibus pretiosis et metallorum diversorum varietate vestita. currus autem Cybeles a leonibus trahitur coronamque turritam in capite gestare dicitur. pingitur iuxta eam in curru Atys puer nudus, quem illa amasse dicitur et nimio zelo castrasse: et sic illi virilia pingitur amputare.“ quomodo autem philosophi Cybeles simulacra explicarint, apparet ex Iuliano p. 167 B et Varrone ap. Aug. de civ. dei 6, 24: eandem dicunt Matrem Magnam, quod tympanum habeat, significare esse orbem terrae, quod turres in capite, oppida: quod sedes fingantur circa eam, cum omnia moveatur, ipsam non moveri.
 
