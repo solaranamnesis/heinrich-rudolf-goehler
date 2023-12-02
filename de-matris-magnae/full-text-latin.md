@@ -790,7 +790,7 @@ Servilia Varia C. I. L. 9, 1538. 1542, quo v. 9 etiam legi potest 15 vir. pro le
 
 sacerdos 15 vir. nomine deleto C. I. L. 9, 981.
 
-Sacerdotes vero non perpetuos fuisse ostenditur tit. C. I. G. 3508 (cf. p. 14), ubi verbis expressis Ulpia Marcella [GREEK] nominatur, et tit. Lugdunensi (Boiss. p. 24), quo sacerdoti Q. Sammio Secundo sanctissimus ordo huius coloniae perpetuitatem sacerdotii decernit. attamen per multos annos munus expleverunt; legitur enim apud Orellium 2984 Antiochum iam 12 annos eodem loco sacerdotem Matris Magnae fuisse, unde efficitur ut diversis locis sacerdotii munere fungi liceat.
+Sacerdotes vero non perpetuos fuisse ostenditur tit. C. I. G. 3508 (cf. p. 14), ubi verbis expressis Ulpia Marcella ἱέρεια διὰ βίου τῆς Μητρὸς τῶν θεῶν nominatur, et tit. Lugdunensi (Boiss. p. 24), quo sacerdoti Q. Sammio Secundo sanctissimus ordo huius coloniae perpetuitatem sacerdotii decernit. attamen per multos annos munus expleverunt; legitur enim apud Orellium 2984 Antiochum iam 12 annos eodem loco sacerdotem Matris Magnae fuisse, unde efficitur ut diversis locis sacerdotii munere fungi liceat.
 
 Ad extremum notandum est sacerdotes Matris deum stipem a populo exigere lege a Metello lata cf. Ovid. f. 4, 350 sq.:
 
@@ -800,7 +800,7 @@ fecit," ait. "dandae mos stipis inde manet";* ad quem morem pertinere videntur e
 
 *) Cic. de legg. 2, 9 (cf. etiam 2, 16): praeter Idaeae Matris famulos eosque iustis diebus nequis stipem cogito.
 
-Quoniam vero non nisi sacerdotum muneribus cognitis explanari potest, quomodo dies festi celebrati sint, nunc videamus, quales fuerint, quibus diebus acti sint quidque sacerdotibus in iis faciendum. exceptis autem diebus festis Cybeles Placianae (cf. p. 3 adn. 3 et Marquardt. Cyz. u. sein gebiet p. 95 sq.) et Attidis, quibus nomen erat [GREEK],* commemorantur [GREEK] C. I. A. 2, 470 v. 13, quibus ephebi Matri deum sacrificabant pateramque centum drachmum dedicabant, quapropter a senatu populoque coronati sunt. dicit autem Hesychius p. 333 (ed. Schmidt) haec s. v. [GREEK] (Schoemann l. l. 2. p. 528).
+Quoniam vero non nisi sacerdotum muneribus cognitis explanari potest, quomodo dies festi celebrati sint, nunc videamus, quales fuerint, quibus diebus acti sint quidque sacerdotibus in iis faciendum. exceptis autem diebus festis Cybeles Placianae (cf. p. 3 adn. 3 et Marquardt. Cyz. u. sein gebiet p. 95 sq.) et Attidis, quibus nomen erat Ἀττίδεια,* commemorantur Γαλάξια C. I. A. 2, 470 v. 13, quibus ephebi Matri deum sacrificabant pateramque centum drachmum dedicabant, quapropter a senatu populoque coronati sunt. dicit autem Hesychius p. 333 (ed. Schmidt) haec s. v. Γαλάξια · ἑορτή, ἐν ᾗ ἕψουσι γαλαξίαν · ἔστι δὲ πόλτος κρίθινος ἐν γάλακτι (Schoemann l. l. 2. p. 528).
 
 *) Visconti ann. inst. 41 p. 227: si sa che lo smarrimento ed il ritrovamento del nume solare, in questa, come in altre simili idolatrie della natura, stabiliva due periodi di feste essenzialmente diverse, di lutto l'une, l'altre di allegrezza.
 
@@ -814,9 +814,9 @@ Tum vero aetate imperatoria novi dies festi tempore aequinoctii instituti sunt; 
 
 *) Macrob. 1, 21, 8. Lucret. 2, 498 sq. August. d. civ. dei 7, 24. Lydus de mens. 3, 34. Gregor Tur. in glor. confess. c. 77 commemorat pompam Berecyntiae.
 
-IDIB. MARTIIS. CANNA INTRAT. Lydus de mens. 4, 36: [GREEK].
+IDIB. MARTIIS. CANNA INTRAT. Lydus de mens. 4, 36: εἰδοῖς Μαρτίαις... ἱεράτευον δὲ καὶ ταύρου ἑξέτη ὑπὲρ τῶν ἐν τοῖς ὄρεσιν ἀγρῶν, ἡγουμένου τοῦ ἀρχιερέως καὶ τῶν κανηφόρων τῆς μιτρόχου.
 
-11 KAL. APR. ARBOR INTRAT. Lydus l. l. 4, 41 [GREEK]. arbor autem violis exornata erat (Arnob. 5, 116).
+11 KAL. APR. ARBOR INTRAT. Lydus l. l. 4, 41 τῇ πρὸ δεκαμιᾶς Καλενδῶν Ἀπριλίων δένδρον πίτυς παρὰ τῶν δενδροφόρων ἐφέρετο ἐν τῷ Παλατίῳ · τὴν δὲ ἑορτὴν Κλαύδιος ὁ βασιλεὺς κατεστήσατο. arbor autem violis exornata erat (Arnob. 5, 116).
 
 9 KAL. APR. SANGVEM, quo die archigallus sanguinem impurum lacertos castrando libavit.
 
@@ -826,7 +826,7 @@ IDIB. MARTIIS. CANNA INTRAT. Lydus de mens. 4, 36: [GREEK].
 
 *) Mihi dies Matris Magnae festos accuratius perquirenti valde placet Haakhii (verhdl. deutscher philologen in Stuttgart 1857 p. 156 sq.) sententia, qui censet diem festum nostrum, quem nominamus "Karneval" originem non traxisse a Saturnalibus, sed ab Hilaribus; quae sequitur dies requietionis aeque ac nostrum "Karneval" dies, cui nomen est "Aschermittwoch." quod si nobis persuasum est iam non opus est accipere Saturnalia propter diem festum Christianorum (Weihnacht) non exeunte anno, sed vere celebrata esse.
 
-6 KAL. APR. LAVATIO; lavacrum in flumine Almone sub cura 15 virorum factum est, ad quem lapis sacer argenteo capite femineo indutus (Prud. [GREEK]. 10, 153. Zoega Bassirilievi 1, 89) pompa ducebatur. denique sequitur
+6 KAL. APR. LAVATIO; lavacrum in flumine Almone sub cura 15 virorum factum est, ad quem lapis sacer argenteo capite femineo indutus (Prud. π. στεφ. 10, 153. Zoega Bassirilievi 1, 89) pompa ducebatur. denique sequitur
 
 5 KAL. APR. INITIVM CAIANI. Mommsenus (C. I. L. 1. p. 390) exposuit in circo Gaiano trans Tiberim in Vaticano sito, quod nomen a Caligula accepit (Dio C. 59, 14), tauroboliaca sacra urbana peracta esse et quod in curioso et notitia (reg. 14 cf. p. 62) Gaianum et Frigianum (i. e. sacrarium Matris Phrygiae) coniungerentur et quod sacrorum tauroboliacorum in provinciis ad urbis exemplum institutorum locus item appellari soleret Vaticanus. quamquam capite 5 ostendam alteram causam vix stare posse, tamen sententia ipsa mihi probatur.
 
@@ -836,19 +836,19 @@ Ac de festis quidem diebus satis arbitror dictum.
 
 De tauroboliis, crioboliis aemoboliisque.
 
-Quamquam permulti nobis extant tituli tauroboliaci atque a Prudentio aliisque haec sacra discimus, tamen nonnullae restant difficultates, quas investigandas atque quantum possum dissolvendas hoc capite mihi proposui.* ac primum quidem de voce, quid significet quamque originem habeat, breviter dicam. [GREEK] certe derivandum est a voce [GREEK] et [GREEK] ita ut [GREEK] eum significet, qui taurum mactat; cum vero hoc fiat a sacerdote, is quoque taurobolus nominatur cf. carmeu cod. Par. 8084 v. 57 (Herm. 4 p. 50 sq.):
+Quamquam permulti nobis extant tituli tauroboliaci atque a Prudentio aliisque haec sacra discimus, tamen nonnullae restant difficultates, quas investigandas atque quantum possum dissolvendas hoc capite mihi proposui.* ac primum quidem de voce, quid significet quamque originem habeat, breviter dicam. ταυροβόλιον (κριοβόλιον, αἱμοβόλιον) certe derivandum est a voce ταῦρος (κριός, αἷμα) et βάλλειν ita ut ταυροβόλον eum significet, qui taurum mactat; cum vero hoc fiat a sacerdote, is quoque taurobolus nominatur cf. carmeu cod. Par. 8084 v. 57 (Herm. 4 p. 50 sq.):
 
 *) Tractaverunt, ut ceteros omittam, hanc rom v. Dalen dissert. 9 antiquitatibus quin et marmoribus inservientium 1 Amstelod. 1702. Fr. Kautz de taurobolio Lips. 1738. Boissieu inscr. de Lyon p. 20 sq. Burckhardt das zeitalter Konstantins d. gr. 2 p. 193 sq.
 
 quis tibi taurobolus vestem mutare suasit?
 
-[GREEK] igitur id est quod pertinet ad taurobolum, cuius munus gravissimum est sacrificare. num vero primum s. v. taurobolii locum, quo sacrum peractum est, Romani intellexerint, dubito neque comparari potest cum voce nostra cognomen Dianae ([GREEK]), cuius aedes ap. Strab. 14, 639 [GREEK] et sacra [GREEK] (Hesych. s. v. [GREEK]) appellantur. quibus autem temporibus illa sacra Romani acceperint, non satis constat; attamen vix quisquam negabit quin non nisi aetate imperatoria, fortasse iam primo p. Chr. saeculo facta sint.* sed tantum abest ut pagani baptismate Christianorum contempto simile quid invenerint, ut contra eos quoque illa aetate, qua summae libidines summaeque religiones nobis occurrunt atque homines rebus mysticis valde studebant, desiderasse censeam aliquid, quo novum quasi existeret corpus ipsique renascerentur.*
+ταυροβόλιον igitur id est quod pertinet ad taurobolum, cuius munus gravissimum est sacrificare. num vero primum s. v. taurobolii locum, quo sacrum peractum est, Romani intellexerint, dubito neque comparari potest cum voce nostra cognomen Dianae (Ταυροπόλος), cuius aedes ap. Strab. 14, 639 ταυροπόλιον et sacra ταυροπόλια (Hesych. s. v. ἃ εἰς ἑορτὴν ἄγουσιν Ἀρτέμιδι) appellantur. quibus autem temporibus illa sacra Romani acceperint, non satis constat; attamen vix quisquam negabit quin non nisi aetate imperatoria, fortasse iam primo p. Chr. saeculo facta sint.* sed tantum abest ut pagani baptismate Christianorum contempto simile quid invenerint, ut contra eos quoque illa aetate, qua summae libidines summaeque religiones nobis occurrunt atque homines rebus mysticis valde studebant, desiderasse censeam aliquid, quo novum quasi existeret corpus ipsique renascerentur.*
 
 *) Antiquissimus tit. taurob. Matris deum est Lugdunensis a. 160 p. Chr. erectum; attamen quoniam in illo certe non primum taurobolium (cf. infra) commemoratur, illa Romae aliquanto anto percepta esse videntur.
 
 *) Burckhardt p. 223 adn. 1 citat Arnob. l. 2, 62: Etruria libris in Acheronticis pollicetur certorum animalium sanguine numinibus certis dato divinas animas fieri et ab legibus mortalitatis educi. --renatus in aeternum legitur C. I. L. 6, 510. 736. vires quoque tauri aeternae nominantur Or. 2323.
 
-Tres autem novimus testes sacrorum taurobolii, quorum verba expressa afferre mihi opus esse videtur. ac Firmicus quidem Maternus haec dicit (de err. pr. rel. 27, 8): neminem apud idola profusus sanguis iuverit. et ne cruor pecudum miseros homines aut decipiat aut perdat, polluit sanguis iste, non redimit et par varios casus homines premit in mortem. miseri sunt qui profusione sacrilegi sanguinis cruentantur. tauribolium vel criobolium scelerata te sanguinis labe perfundit. tum vero Prudentius accuratissime nos de sacris illis certiores fecit in "hymno de martyre Romano" ([GREEK]. 10, 1011 sq.):
+Tres autem novimus testes sacrorum taurobolii, quorum verba expressa afferre mihi opus esse videtur. ac Firmicus quidem Maternus haec dicit (de err. pr. rel. 27, 8): neminem apud idola profusus sanguis iuverit. et ne cruor pecudum miseros homines aut decipiat aut perdat, polluit sanguis iste, non redimit et par varios casus homines premit in mortem. miseri sunt qui profusione sacrilegi sanguinis cruentantur. tauribolium vel criobolium scelerata te sanguinis labe perfundit. tum vero Prudentius accuratissime nos de sacris illis certiores fecit in "hymno de martyre Romano" (π. στεφ. 10, 1011 sq.):
 
 summus sacerdos nempe sub terram scrobe  
 acta in profundum consecrandus mergitur,  
@@ -915,7 +915,7 @@ Antiquissimo autem titulo, quo taurobolium commemoratur, C. I. L. 10, 1596 eciti
 
 Nunc veniamus ad titulum Lugdunensem (Boiss. inscr. d. L. p. 24), quem etsi multi viri docti iam prius, denique is qui edidit inscriptiones Lugduni accuratissime explicare studuerunt, tamen illos recte eum interpretatos esse nego. arae autem insculpta sunt haec: (in columna media) taurobolio Matris deum Magnae Idaeae, quod factum est ex imperio* Matris divae deum pro salute imperatoris Caesaris T. Aeli Hadriani Antonini Aug. Pii Patris Patriae liberorumque eius et status coloniae Lugudunensis L. Aemilius Carpus [...] vir. Aug. item dendrophorus (sequitur bucranium). vires excepit et a Vaticano transtulit ara[m] et bucranium suo inpendio consacravit* sacerdote Q. Sammio Secundo ab 15 viris occabo et corona exornato, cui sanctissimus ordo Lugudunensis perpetuitatem sacerdoti decrevit Appio Annio Atilio Bradua T. Clodio Vibio Varo cos. (160 p. Chr.). L. d. d. d. (in columna dextera): cuius mesonyctium factum est 5 Id. Dec. in prima autem parte nihil est, quod praebet difficultates; quaeritur tantummodo, quomodo intellegenda sint verba: vires excepit et a Vaticano transtulit. vires excipere nihil aliud significare potest nisi tauroboliari; nam si verba scriptorum supra a me laudatorum inspexerimus, cognoscemus sanguine* tauri renasci tauroboliatum. quod si nobis probatur, elucet quid sibi velint verba: a Vaticano transtulit. Carpus enim Romae tauroboliatus pro salute imperatoris liberorumque eius et status coloniae taurobolium transtulit Lugdunum. unde apparet Vaticanum non situm esse in illa colonia. quam sententiam protulerunt Boissieu et Mommsenus C. I. L. 1 p. 390; viri enim docti, qui de hoc titulo egerunt hanc partem non bene perspexisse videntur, cura cur in hoc titulo tauroboliaco, qui multum distat a ceteris, sacerdos Q. Sammius Secundus a 15 viris occabo et corona ornatus eique sacerdotii perpetuitas decreta esset, explanare non studerent. attamen si conicimus Sammio Secundo auctore Carpum ex imperio Matris deum Romam missum ibidem taurobolium accepisse, intellegimus quamobrem illum et 15 viri, qui tauroboliis praefuerunt, et ordo Lugdunensis tantis honoribus affecerint. ceterum restat ut de voce difficillima "mesonyctium" verba faciam; cogitandum est aut de illo tempore, quo dea imperaverat, ut taurobolium fieret, aut de caerimonia nocturna quoniam vero primum vix inesse potest in hac voce, alterum rectum esse videtur; quamquam sane mirum est, quod apud Prudentium nihil legitur de tempore insolito.
 
-*) Carpum non bucranium ex Vaticano transtulisso, sed aram cum bucranio exsculpto consecrasse iam bene perspexit Kautz l. l. p. 46; atque recte coniecisse videtur Kaibel epigr. gr. 823 (C. I. A. 3, 172) [GREEK] in hoc titulo taurob. Atheniensi aeque atque in altero C. I. A. 3, 173 [GREEK] significare bucrania.
+*) Carpum non bucranium ex Vaticano transtulisso, sed aram cum bucranio exsculpto consecrasse iam bene perspexit Kautz l. l. p. 46; atque recte coniecisse videtur Kaibel epigr. gr. 823 (C. I. A. 3, 172) τὰ συνθήματα in hoc titulo taurob. Atheniensi aeque atque in altero C. I. A. 3, 173 τὸ σύνθημα significare bucrania.
 
 *) Sic explicandae etiam sunt locutiones vires condere (Orelli 2332) et vires consacrare Wilmanns ex. 124. Gruter 30, 5.
 
@@ -925,7 +925,7 @@ Deinde titulus C. I. L. 6, 508 dignus est de quo disputemus: Potentiss(imis) dii
 
 Iam vero quaerendum est, quo tempore taurobolia consummata sint quotque annos valuerint. haud dubie titulis Lugdunensibus ostenditur ea aut per quattuor dies (Boiss. p. 28. 36) aut per tres (Boiss. p. 33) peracta esse; attamen cum in ceteris qui extant titulis nusquam haec temporis spatia reperiantur atque ex nonnullis (Gruter 30, 1. 4. 5. Wilmanns ex. 124. Or. 2331) luculentissime appareat uno die permulta taurobolia facta esse, conicere licet cum tauroboliis in illa colonia alia mysteria* fuisse coniuncta. quod autem attinet ad alterum satis confirmatur et a scriptoribus (p. 54) et titulis (C. I. L. 6, 504. 514. Eph. epigr. 3, 2, quo cum Mommseno consentio. C. I. L. 6, 510. 736) taurobolium viguisse aut per 20 annos aut in aeternum.
 
-*) Ad ea mysteria referenda esse existimo illa [GREEK] C. I. G. 6012 c (Kaibel epigr. gr. 823) et mysteria, quae una cum mystis affert tit. C. I. G. 6206.
+*) Ad ea mysteria referenda esse existimo illa ἤματα μυστιπόλα C. I. G. 6012 c (Kaibel epigr. gr. 823) et mysteria, quae una cum mystis affert tit. C. I. G. 6206.
 
 Denique ii enumerandi sunt qui aut pro aliis _a._ aut pro se _b._ taurobolia fecerunt:
 
@@ -969,9 +969,9 @@ respublica Lactoratensis Gruter 31, 2; cf. etiam Visconti. ann. inst. 40 p. 399 
 
 b\.
 
-[GREEK] C. I. A. 3, 172.
+Ἀρχέλεως C. I. A. 3, 172.
 
-[GREEK] C. I. A. 3, 173 (a. 387).
+Μουσώνιος C. I. A. 3, 173 (a. 387).
 
 Iulia Valentina et Hycia Gruter 30, 4 (a. 176).
 
@@ -1083,7 +1083,7 @@ locorum, in quibus ædem Matris Magnæ fuisse scriptores et tituli certiores nos
 | Andira prope Scepsin sita                                | Strabo p. 614.                     | C. J. G. 4, 6836.                                                                                                                                                                                                                                                                                                                              |
 | Metroa fuisse videntur                                   | ---                                |                                                                                                                                                                                                                                                                                                                                                |
 | Cii                                                      | ---                                | C. J. G. 3727.                                                                                                                                                                                                                                                                                                                                 |
-| et Nicææ                                                 | ---                                | Lueders die dionys. künstler p. 9 tab. 2. Maurer de aris Gr. plur. Deis in commune positis 1885 p. 69 propter formann [GREEK] (C. J. G. 2771. Herm. Vol. 16, 166) Chalcedone duos titulos erectos esse censet; attamen mihi multo probabilius esse videtur concludere formam [GREEK] non modo Chalcedone sed in tota Bithynia usitatam fuisse. |
+| et Nicææ                                                 | ---                                | Lueders die dionys. künstler p. 9 tab. 2. Maurer de aris Gr. plur. Deis in commune positis 1885 p. 69 propter formann ἱερωτεύσαντα (C. J. G. 2771. Herm. Vol. 16, 166) Chalcedone duos titulos erectos esse censet; attamen mihi multo probabilius esse videtur concludere formam ἱερωτεύειν non modo Chalcedone sed in tota Bithynia usitatam fuisse. |
 
 ## 2\. Græcia
 
