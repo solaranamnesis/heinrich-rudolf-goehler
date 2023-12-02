@@ -318,7 +318,17 @@ Sequitur tit. _C. I. L. 6, 1780_ Fabiae Aconiae Paulinae clarissimae feminae, fi
 
 Paulo post ortus est tit. _Bull. inst. arch. 1884 p. 56 sq._, quera posuisse videtur 2 Non. Sept. Arcadio et Fl. Bautone V. C. consulibus (d. 4 m. Sept. a. 385)* uxor coniugi suo Alfenio Ceionio Iuliano Kamenio anno 43 mortuo, quem eundem fuisse atque illum Alfenium, de quo supra dixi (p. 25), nequaquam verisimile est; quod si acciperemus, aut multo post eius mortem sepulcrum factum aut numerus annorum a lapicida falso insculptus esset, cui sententiae obstant verba: „obiens iuvenilibus annis“ et „te coniunx cum parvis deflet natis.“ itaque arbitror illum Ceionium patrem nostri fuisse, qui uterque sanctus nominatur atque eosdem honores percurrit.
 
-*) Sequuntur versus pulcherrimi:  inter avos proavosque tuos sanctumque parentem  virtutum meritis et honoribus emicuisti,  ornamentum ingens generis magnique senatus;  sed raptus propere liquisti, sancte Kameni,  aeternos fletus obiens iuvenilibus annis.  te dulcis coniunx lacrimis noctesque diesque  cum parvis deflet natis solacia vitae,  amisisse dolens casto viduata cubili,  quae tamen extremum munus solacia luctus  omnibus obsequiis omat decoratque sepulcrum.
+*) Sequuntur versus pulcherrimi:  
+inter avos proavosque tuos sanctumque parentem  
+virtutum meritis et honoribus emicuisti,  
+ornamentum ingens generis magnique senatus;  
+sed raptus propere liquisti, sancte Kameni,  
+aeternos fletus obiens iuvenilibus annis.  
+te dulcis coniunx lacrimis noctesque diesque  
+cum parvis deflet natis solacia vitae,  
+amisisse dolens casto viduata cubili,  
+quae tamen extremum munus solacia luctus  
+omnibus obsequiis omat decoratque sepulcrum.
 
 Tum vero tit. _C. I. L. 6, 1778_ Vettio Agorio Praetextato V. C. tauroboliato Kal. Febr. Fl. Valentiniano Aug. 3 et Eutropio consulibus (d. 1 m. Febr. a. 387) positus est et tit. _C. I. L. 6, 1779_ eidem et Aconiae Fabiae Paulinae uxori (cf. supra), qui coniuncti vixerunt annos 40 ad eundem annum spectat tit. _C. I. A. 3, 173_, quo consulibus Onorio et Euodio 6 Kal. Iun. (d. 27 m. Maii), cum Hermogenes archon* fuit, Musonius Athenis taurobolium percepit; quoniam vero tit. _C. I. A. 3, 172_* primum taurobolium Athenis factum commemoratur, manifestum est hunc titulum illo antiquiorem esse atque Iuliani fortasse aetate exaratum.
 
