@@ -1304,47 +1304,47 @@ Inscriptiones graecae.
 
 2\. Sacerdotes, sacerdotia, sacra.
 
-[GREEK] C. I. G. 3508. 3953.
+ἀρχιέρεια C. I. G. 3508. 3953.
 
-[GREEK] C. I. A. 3, 1062. cf. p. 40.
+ἄρχων ἱερεύς C. I. A. 3, 1062. cf. p. 40.
 
-[GREEK] C. I. A. 2, 622.
+Ἀττίδεια C. I. A. 2, 622.
 
-[GREEK] C. I. A. 2, 470 v. 13.
+Γαλάξια C. I. A. 2, 470 v. 13.
 
-[GREEK] C. I. G. 3668 (D. 270).
+γάλλος C. I. G. 3668 (D. 270).
 
-[GREEK] C. I. A. 3, 172.
+δᾳδοῦχος C. I. A. 3, 172.
 
-[GREEK] C. I. G. 6012 c.
+δεκαπέντε ἄνδρες Φοίβου C. I. G. 6012 c.
 
-[GREEK] C. I. A. 2, 622.
+εἰσιτητήρια C. I. A. 2, 622.
 
-[GREEK] C. I. G. 3137 (D. 171).
+οἱ ἐξετασταὶ ἐπὶ τοῦ Μητρώου ἱεροῖς νεοκαύιοις C. I. G. 3137 (D. 171).
 
-[GREEK] Lueders d. Dion. künstler p. 9 t. 2.
+θιασῖται Lueders d. Dion. künstler p. 9 t. 2.
 
-[GREEK] ibidem.
+θιασίτιδες ibidem.
 
-[GREEK] C. I. G. 3727.
+θίασος C. I. G. 3727.
 
-[GREEK] C. I. A. 2, 614 ([GREEK]). B. C. H. 7. p. 69.
+θιασῶται C. I. A. 2, 614 (τὸ κοινὸν τῶν θιασώντων). B. C. H. 7. p. 69.
 
-[GREEK] C. I. G. 3657 ([GREEK]).
+ἱερὰ C. I. G. 3657 (συντελεῖν ἐν τῇ συνόδῳ τοῖ Ταυρεῶνος).
 
-[GREEK] C. I. A. 3, 172.
+ἱερὰ σηκῶν κλεῖθρα φέρων C. I. A. 3, 172.
 
-[GREEK] C. I. G. 3508.
+ἱερασαμένη C. I. G. 3508.
 
-[GREEK] Lueders l. l. p. 9 tab. 2.
+ἱερατεύσασα Lueders l. l. p. 9 tab. 2.
 
-[GREEK] C. I. G. 6206. C. I. A. 2, 614 ([GREEK]) C. I. G. 6012 c.
+ἱερεύς C. I. G. 6206. C. I. A. 2, 614 (ἀεὶ λαχὼν καὶ ὤν) ἱρεύς C. I. G. 6012 c.
 
-[GREEK] C. I. G. 3193. B. C. H. 7 p.69. C. I. A. 2, 622 ([GREEK]). C. I. G. 3508 ([GREEK]).
+ἱέρεια C. I. G. 3193. B. C. H. 7 p.69. C. I. A. 2, 622 (λαχοῦσα εἰς τὸν ἐνιαυτὸν τὸν ἐπὶ Αἴσχρωνος). C. I. G. 3508 (διὰ βίου).
 
-[GREEK] C. I. G. 3657.
+αἱ συνοῦσαι ἱέρειαι C. I. G. 3657.
 
-[GREEK] B. C. H. 7 p. 69.
+ἱερόν B. C. H. 7 p. 69.
 
 [GREEK] C. I. G. 3657.
 
