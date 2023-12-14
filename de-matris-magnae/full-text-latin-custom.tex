@@ -2,9 +2,9 @@
 %Background image credits:https://commons.wikimedia.org/wiki/File:Hemp_paper_in_Japan.jpg タバコはマーダー, CC BY-SA 4.0, via Wikimedia Commons
 \documentclass[a4paper, 11pt, oneside, polutonikogreek, german, twocolumn]{article}
 \usepackage[T1]{fontenc}
-\usepackage{drm}
+\usepackage{gfsdidot}
+
 % Load encoding definitions (after font package)
-\usepackage[dvipsnames]{xcolor}
 \usepackage{eso-pic,graphicx}
 \usepackage[top=55mm, bottom=25mm, outer=18mm, inner=18mm]{geometry}
 \setlength{\columnsep}{90pt}
@@ -40,14 +40,6 @@
 
 \usepackage{setspace}
 \onehalfspacing
-
-% change color of text, example replace all \color{Goldenrod} with \color{lightgray}
-
-\makeatletter % change only the display of \thepage, but not \thepage itself:
-\patchcmd{\ps@plain}{\thepage}{\color{Black}{\thepage}}{}{}
-\makeatother
-
-\color{Black}
 
 \newcommand*\svgAA{\includesvg[height=1em]{svg01.svg}}
 \newcommand*\svgAB{\includesvg[height=1em]{svg02.svg}}
