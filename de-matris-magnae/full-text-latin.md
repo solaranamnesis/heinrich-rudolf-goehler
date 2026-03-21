@@ -935,7 +935,7 @@ sub terram missus, pollutus sanguine tauri,
 sordidus, infectus, vestes servare cruentas,  
 vivere cum speras viginti mundus in annis?
 
-Antiquissimo autem titulo, quo taurobolium commemoratur, C. I. L. 10, 1596 ecitium* taurobolium Veneris Caelestae ! et pantelium ab Herennia, Fortunata imperio* deae per Ti. Claudium Felicem sacerdotem iteratur; ex quo concludendum esse puto, cum titulus L. Iulio Urso Serviano cos. 3 Non. Oct. (134 p. Chr.) exaratus sit, taurobolia ab initio non modo Matri Magnae, sed etiam aliis numinibus facta esse, tum vero postquam propriam acceperunt formam non nisi in Matris Magnae sacris adhibita esse; neque enim quicquam obstat, quominus tantum cogitemus de sacrificio nullo baptismate adiecto.
+Antiquissimo autem titulo, quo taurobolium commemoratur, C. I. L. 10, 1596 ecitium* taurobolium Veneris Caelestae ! et pantelium ab Herennia, Fortunata imperio deae per Ti. Claudium Felicem sacerdotem iteratur; ex quo concludendum esse puto, cum titulus L. Iulio Urso Serviano cos. 3 Non. Oct. (134 p. Chr.) exaratus sit, taurobolia ab initio non modo Matri Magnae, sed etiam aliis numinibus facta esse, tum vero postquam propriam acceperunt formam non nisi in Matris Magnae sacris adhibita esse; neque enim quicquam obstat, quominus tantum cogitemus de sacrificio nullo baptismate adiecto.
 
 *) Haec vox quid sibi velit ignoro; Iablonskii autem sententia, qui censet ecitium esse scriptum pro Aegyptium, mihi non probatur.
 
